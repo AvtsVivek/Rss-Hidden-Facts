@@ -15,4 +15,10 @@
       1. https://www.jagran.com/news/national-mohan-bhagwat-in-rss-function-said-every-person-living-in-india-is-hindu-23098505.html
       2. Basically he is trying to stop Ghar Wapsi. He is ok with hindu to other relegions, but not otherwise.
       3. There is along list of Acharayas who did Gharwapsi, like RamanujaCharya, Hari Har And Bukka back to Hindu tradition. Dayanand Saraswati etc.
-   4. 
+   4. मुस्लिम धर्मगुरु अहमद इलियासी ने RSS प्रमुख मोहन भागवत को बताया राष्ट्रपिता और राष्ट्र ऋषि
+      1. https://www.jagran.com/delhi/new-delhi-city-ncr-rss-chief-mohan-bhagwat-meets-muslim-leaders-and-intellectuals-to-eradicate-communal-hatred-23089517.html
+      2. https://indianexpress.com/article/india/rss-chief-mohan-bhagwat-meets-imam-umer-ahmed-ilyasi-8166232/
+   5. Anyone who says Muslims should not live in India is not Hindu’: Mohan Bhagwat
+      1. https://www.hindustantimes.com/india-news/anyone-who-says-muslims-should-not-live-in-india-is-not-hindu-mohan-bhagwat-101625412723564.html
+      2. Areee idot, who in the first place is makeing that proposition/
+   6. 
