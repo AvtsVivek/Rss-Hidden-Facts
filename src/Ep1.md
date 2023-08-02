@@ -20,5 +20,5 @@
       2. https://indianexpress.com/article/india/rss-chief-mohan-bhagwat-meets-imam-umer-ahmed-ilyasi-8166232/
    5. Anyone who says Muslims should not live in India is not Hindu’: Mohan Bhagwat
       1. https://www.hindustantimes.com/india-news/anyone-who-says-muslims-should-not-live-in-india-is-not-hindu-mohan-bhagwat-101625412723564.html
-      2. Areee idot, who in the first place is makeing that proposition/
+      2. Areee idot, who in the first place is making that proposition/
    6. 
