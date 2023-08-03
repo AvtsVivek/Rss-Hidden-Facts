@@ -30,6 +30,8 @@
    
 4. With the BJP RSS HindutvVadi Khattar Sarkars Abhaya Hast, the stomachs are full, things are ready. They just wanted a trigger, and that is the treditional BrajMandal Yatra, this started, they are ready, Riots started.
 
+5. This was pre planned, you can see this from their preparation on facebook posts.
+
 ## Referneces
 1. https://www.abplive.com/states/delhi-ncr/namaz-will-no-longer-be-held-in-these-8-public-places-in-gurugram-administration-withdraws-order-amid-protests-1991694
 2. https://hindi.opindia.com/politics/haryana-imam-maulana-salary-50-percent-increase-waqf-board-felicitated-cm-manohar-lal-khattar/
