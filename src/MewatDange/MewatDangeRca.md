@@ -5,7 +5,7 @@
 2. Such big roits happened after **30-31** years.
 3. Preplanned, similar to Kashmir and Godra.
 4. In a temple, where around 2000+ unarmed women, children are present, the roiters attempted to surrond them and finish them.
-5. Including police, 5 got killed.
+5. Including police, 5 got killed. Likely more.
 6. Thousands of vehicles are set on fire. Also many shops and houses.
 7. These roits could have escalated to the entire country.
 8. The government is BJP RSS Double Engine Sarkar both at the state level and the center. 
@@ -45,4 +45,4 @@
 1. The BJP RSS HindutvVadi Khattar Sarkar is a Jihadi Sarkar. 
 2. Things will be worse as we go ahead. 
 3. BJP is not for Hindus. The sooner Hindus realize the better.
-4. 
+4. RSS is a Passive Jihadi Sanghathan.
