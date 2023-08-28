@@ -10,6 +10,8 @@
       3. https://youtu.be/5GuskH0cOGk?t=290
       4. ExMuslims are concerned about security
       5. https://youtu.be/5GuskH0cOGk?t=300
+      6. They want a cateogry. They want to live freely, in a community of Exmuslims. 
+      7. https://youtu.be/BuwBT6cFZVA?t=552
 2. Hindu superiority. 
    1. Rss/Bjps tendency is to pull down the superiority of Hindus as aginest Islam/Chistianity. They try to potray Hinduism at par with other relegions. 
    2. We on the other hand should not allow this. Our national president said that we will seek votes from Hindus only. Then in such a case, we should not allow Hinduism to be pulled down to the level of any Abrahemic relegion. We should be very clear why Hinduism is superior and we should strongly uphold this view. 
