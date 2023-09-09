@@ -30,6 +30,8 @@ I am thinking isn’t this the right time for an Ex-RSS movement? So, what do yo
 
 And yaa, Ayeaga to Modi hee. The great Mass Hindu Hypnotizer. Who can beat him? Especially with Rahul Gandhi as opponent, his greatest strength!!
 
+Har Har Modi, Ghar Ghar Modi.
+
 Ref1: https://www.youtube.com/watch?v=srYYJ0Mo7tc&t=59s
 
 Ref2: https://newsum.media/reservations-should-continue-as-long-as-there-is-discrimination-in-society-rss-president-mohan-bhagwat/
