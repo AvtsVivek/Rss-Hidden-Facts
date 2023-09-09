@@ -1,38 +1,50 @@
 
 The moron in action yet again.
 
-This stinking and rotting state of mind says
+Ooh ...This stinking and rotting state of mind says
 
 We kept our own fellow human beings behind in the social system. Their lives became like that of animals but we did not care for them and this continued for at least 2,000 years.
 We get such examples in Mahabharat.
 
-From where in Mahabharat?  NO Clue. 
+![The AH](AH.jpg)
 
-Please bare with me for the following, because I am not the one who is saying it. Its again and Ex-Sanghi.
+Hmnn... MAHABHARAT!!!
 
-ये जब मुँह खोलता है तब विष्ठा ही करता है
+From where in Mahabharat you ask?  How dare you ask such a question?
 
-The more you undermine our scriptures, the more you become acceptable by the left and the west. 
+Ok, Please bare with me for the following, because I am not the one who is saying it. Its again an Ex-Sanghi.
 
-Does he have any guts to speak againest Islm and Chistnity?
+"ये जब भी मुँह खोलता है, तब विष्ठा ही करता है"
 
-If there is one ideology that is dangerous to this country today, thats RSS. 
+So - "If there is one ideology that is dangerous to this country today, thats RSS."
 
-And you know, there is a fun fact to this. Believe it or not, this is said by none other than Rahul Gandhi.
+And you know, there is a fun fact to this particular point. Believe it or not, this is said by none other than our own Pappu - Rahul Gandhi. How true it is?
 
-For those living in a cave, Ex-Muslim movement is in Rage these days. Anonimous Ex-Muslims are all over the place.  
+Bit serious, The idea is simple, more you undermine our scriptures, the more you become acceptable by the left and the west. As I already mentioned, this is an anti intellectual moment. No books, no reading. Just roaming around and crapping.
 
-So, Isnt this the right time for Ex-RSS movement? What do you think?
+Does he have any guts to speak against Islm and Chistnity?
 
-And yaa, Ayeaga to Modi hii. The great Mass Hindu Hipnotizer. Who can beat him? Especially with Rahul Gandhi as opponent.  
+Now, for those living in a cave, Ex-Muslim movement is in rage these days. Anonymous Ex-Muslims are all over the place converting others into Ex-Muslims
 
-Ref: https://www.youtube.com/watch?v=srYYJ0Mo7tc&t=59s
+So, I am thinking isn’t this the right time for an Ex-RSS movement? What do you think? Or its already happening?
 
-https://newsum.media/reservations-should-continue-as-long-as-there-is-discrimination-in-society-rss-president-mohan-bhagwat/
+And yaa, Ayeaga to Modi hee. The great Mass Hindu Hypnotizer. Who can beat him? Especially with Rahul Gandhi as opponent, his greatest strength!!
+
+Ref1: https://www.youtube.com/watch?v=srYYJ0Mo7tc&t=59s
+
+Ref2: https://newsum.media/reservations-should-continue-as-long-as-there-is-discrimination-in-society-rss-president-mohan-bhagwat/
+
+
 
 https://www.youtube.com/channel/UCUnYd8AViF5MpVVisqd_KzA/community?lb=UgkxIAR6PdB84LvwgwT15sAGaeGDY5J3SPQx
 
 https://yt3.ggpht.com/lgBqnf4y8ttVueRfAAbxINHggbMLRRV9lyQprhf_GyJtO2fOOKH_Dt_iYMb-BNFI7rv6KGF7Vd6a=s640-nd-v1
+
+
+
+
+
+
 
 
 https://youtu.be/pPQc3Zi1Em0?t=489
