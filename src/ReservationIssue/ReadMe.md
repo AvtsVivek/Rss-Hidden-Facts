@@ -26,7 +26,7 @@ Does he have any guts to speak against Islm and Chistnity?
 
 Now, for those living in a cave, Ex-Muslim movement is in rage these days. Anonymous Ex-Muslims are all over the place converting others into Ex-Muslims
 
-So, I am thinking isn’t this the right time for an Ex-RSS movement? What do you think? Or its already happening?
+I am thinking isn’t this the right time for an Ex-RSS movement? So, what do you think? Or its already happening?
 
 And yaa, Ayeaga to Modi hee. The great Mass Hindu Hypnotizer. Who can beat him? Especially with Rahul Gandhi as opponent, his greatest strength!!
 
