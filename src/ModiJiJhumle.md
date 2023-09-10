@@ -12,4 +12,7 @@
       1. https://www.youtube.com/watch?v=Nds_d3jwsa8
    5. Govt For Pink Revolution Instead Of Green Or White Modi - need to check
       1. https://www.youtube.com/watch?v=G0zKgsY9rrY
+      2. https://www.youtube.com/watch?v=E5v1ulRGhSY
+   6. Meera Kaleja roo ra haa hain
+      1. https://www.youtube.com/watch?v=woxIJe01IiY&t=81s
 3. Muslim Reservation 
