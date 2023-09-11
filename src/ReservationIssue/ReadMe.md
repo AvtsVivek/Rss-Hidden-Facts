@@ -10,7 +10,9 @@ We get such examples in Mahabharat.
 
 Hmnn... MAHABHARAT!!!
 
-From where in Mahabharat you ask?  How dare you ask such a question?
+From where in Mahabharat you ask?  How dare you ask such a question? बोल दिया बस। भागवत हूँ...।
+
+And there is nothing new in this by the way. Were many such in the past and also will be in the future.
 
 Ok, Please bare with me for the following, because I am not the one who is saying it. Its again an Ex-Sanghi.
 
@@ -18,9 +20,9 @@ Ok, Please bare with me for the following, because I am not the one who is sayin
 
 So - "If there is one ideology that is dangerous to this country today, thats RSS."
 
-And you know, there is a fun fact to this particular point. Believe it or not, this is said by none other than our own Pappu - Rahul Gandhi. How true it is?
+And you know, there is a fun fact to this particular point. Believe it or not, this is said by none other than our own Pappu - Rahul Gandhi. How true it is...
 
-Bit serious, The idea is simple, more you undermine our scriptures, the more you become acceptable by the left and the west. As I already mentioned, this is an anti intellectual moment. No books, no reading. Just roaming around and crapping.
+Bit serious, The idea is simple, more you undermine our scriptures, the more you become acceptable by the left and the west. As I already mentioned, this is an anti intellectual movement. No books, no reading. Just roaming around and crapping.
 
 Does he have any guts to speak against Islm and Chistnity?
 
