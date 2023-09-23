@@ -31,6 +31,6 @@ So now, are you surprised by the following?
 Why look for Shivling in every mosque? - Mohan Bhagavat
 
 50 वर्षों के लिए देवी देवताओं को भूल जाएं युवा - Mohan Bhagavat
-Needless to say, not a single word again Muslims even as they are butchering their own cadre.
+Needless to say, not a single word againjesgt Muslims even as they are butchering their own cadre.
 
 So my feeling is BJP must completely get rid of RSS ideology. If not, the decline is certain. Looks like it's already begun.
