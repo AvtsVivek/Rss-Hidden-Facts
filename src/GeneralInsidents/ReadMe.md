@@ -75,3 +75,29 @@ https://twitter.com/BJPMinMorcha/status/1729257157529625039
 Sabka Ssath, Sabka Vikas, Sahka Vishwas Sabka Prayaas
 Hindu ka Sath, Pasmanda Ka Vikas, Arbi Hukmaron ka Vishvas, and Modi ka Prayas.
 They never say this before the election. Only after the election.
+
+
+
+All judges have the same middle name. God
+https://youtu.be/c0UEM5wHie4?t=447
+
+
+imam e hind, imam-e-hind, Indresh Kumar
+
+https://twitter.com/RituRathaur/status/1735246581488873562/photo/1
+https://twitter.com/RituRathaur/status/1735246581488873562/video/2
+https://www.awazthevoice.in/society-news/indresh-kumar-asks-indians-to-celebrate-ram-temple-at-ayodhya-25049.html
+https://english.bharatexpress.com/india/celebrate-the-festival-of-grandeur-as-imam-e-hind-ram-resides-in-ayodhya-temple-indresh-kumar-100903
+
+Never ever think this just any other statement. This is well thought-out plan. 
+
+"..I am from RSS, we've never said in our discourse in the Sangh training camps that we're rightist. Many of our ideas are like leftist ideas..." said RSS leader Dattatreya Hosabale while releasing a book – The Hindutva Paradigm written by RSS leader Ram Madhav in Delhi  
+https://twitter.com/ANI/status/1451616599937454080
+
+
+
+मोदी ने कहा- रमजान से पहले घर आएंगे सऊदी अरब की जेल में बंद 850 भारतीय
+https://www.bhaskar.com/national/news/pm-narendra-modi-say-indians-jailed-in-saudi-arabia-will-come-home-before-ramzan-01538567.html
+Indians jailed in Saudi Arabia will come home before Ramzan: Modi
+https://www.babushahi.com/full-news.php?id=86654&headline=Indians-jailed-in-Saudi-Arabia-will-come-home-before-Ramzan:-Modi
+https://twitter.com/rkpoickad/status/1737023831326466080

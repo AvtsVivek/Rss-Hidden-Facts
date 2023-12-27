@@ -1,5 +1,5 @@
 Sawarn and OBC are being targetted. 
-High court and supreme court already stated againest the SC/ST act. 
+High court and supreme court already stated againest the SC/ST(sc/st) act. 
 Supreme Court gave a judgement, that without investigation, there should be no arrests. But the government came up with ordinance. 
 
 Justice BalaKrishnana Report is about to come. When Muslim and Chirstians will be given SC/ST status. This will be re entry of Communal Violance bill in an indirect form.
@@ -25,3 +25,6 @@ https://twitter.com/ShubhamFdNP/status/1691838056511443435
 
 यह आँसू एक परिवार के हैं जिसके घर का एक व्यक्ति SC-ST एक्ट की बलि चढ़ गया। पहले बाप बेटे को जेल भेजा गया फिर जमानत पर बाहर आने के बाद हत्या कर मार दिया गया। मनबढ़ दलितों ने प्लॉट पर कब्जा भी कर लिया। एससी एसटी एक्ट न जाने अब कितने और परिवारों के चिराग को बुझाएगा! मामला उत्तर प्रदेश के कानपुर का है।
 https://twitter.com/ShubhamFdNP/status/1692099742728331504
+
+
+https://timesofindia.indiatimes.com/india/wont-allow-dilution-of-sc/st-act-pm-modi/articleshow/63754523.cms
