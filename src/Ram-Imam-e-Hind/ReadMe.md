@@ -22,7 +22,7 @@ You see, one way to control pple is use cult figures. In China there is Mao Zedo
 
 Then there is Kim Il Sung and Kim Jong II in Korea. Ref 5
 
-Religion is the opium of the masses, you heard it right?
+Marx said Relegion is the opium of the masses. Oooh boy. Was he ever wrong.
 
 So these RSS pple are upto something. Things are never what meets the eye.
 
@@ -34,7 +34,7 @@ Some time back, I saw an image Modi holding hand of Lord Ram as a small child. I
 
 Its too early to say, we need to wait and watch.
 
-This RSS appears to be an Islamic Communist cocktail and are trying to build a cult figure and thats one and only Modi.
+This RSS appears to be an Islamic Communist cocktail and are trying to build a cult figure. and thats one and only Modi.
 
 We need to carefully watchout for this.
 
