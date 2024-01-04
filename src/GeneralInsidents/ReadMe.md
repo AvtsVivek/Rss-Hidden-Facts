@@ -101,3 +101,51 @@ https://www.bhaskar.com/national/news/pm-narendra-modi-say-indians-jailed-in-sau
 Indians jailed in Saudi Arabia will come home before Ramzan: Modi
 https://www.babushahi.com/full-news.php?id=86654&headline=Indians-jailed-in-Saudi-Arabia-will-come-home-before-Ramzan:-Modi
 https://twitter.com/rkpoickad/status/1737023831326466080
+
+
+
+IT BHU Insident.
+
+Current state of UP.
+
+Case againest, Up Congress President Ajay Rai 
+
+https://twitter.com/upadhyayabhii/status/1741901022019322083
+https://twitter.com/upadhyayabhii/status/1741684567394926992
+
+Media is completely siglent. 
+https://twitter.com/SandeepGuptaINC/status/1741477760793809352
+
+https://navbharattimes.indiatimes.com/state/uttar-pradesh/varanasi/all-accused-of-gangrape-of-iit-bhu-student-turned-out-to-be-bjp-leaders-case-was-registered-against-ajay-rai-for-taking-their-names/articleshow/106417473.cms
+
+https://twitter.com/shivayadav87/status/1741759508261798105
+
+ISI agents arrested in Madhya Pradesh linked to BJP; party leaders privately express anguish over possible infiltration
+
+https://www.indiatoday.in/india/story/isi-agents-arrested-in-madhya-pradesh-linked-to-bjp-party-leaders-privately-express-anguish-over-possible-infiltration-960106-2017-02-10
+
+
+https://youtu.be/SPcBGLDqeQQ?t=1053
+
+
+RTI is a joke today.
+
+
+
+https://timesofindia.indiatimes.com/city/nagpur/central-railway-chief-pro-shunted-after-rti-spells-out-cost-of-pm-selfie-booths/articleshow/106499873.cms
+https://timesofindia.indiatimes.com/city/nagpur/railway-official-who-gave-pm-selfie-booths-cost-info-shunted/articleshow/106494991.cms
+
+Railway Transfers Honest Officer who gave PM Modi Selfie Booth Cost | New Video 2023
+https://www.youtube.com/watch?v=F_AlSMQmPts
+
+
+Officers In Charge of CAG Reports on Ayushman Bharat Graft, Bharatmala Cost Irregularities Transferred
+
+The two reports put the BJP-led Union government on the backfoot after the opposition accused it of presiding over “scams” in flagship schemes. The parties demanded accountability from Prime Minister Narendra Modi. After The Wire published its reports, the CAG, in a press release, called them 'erroneous and baseless'.
+
+https://thewire.in/government/officers-cag-reports-ayushman-bharat-bharatmala-transferred
+
+https://timesofindia.indiatimes.com/india/congress-attacks-govt-over-transfer-of-cag-officers-involved-in-audit-of-dwarka-expressway-ayushman-bharat-schemes/articleshow/104342254.cms?from=mdr
+
+https://www.thenewsminute.com/news/cag-transfers-officers-in-charge-of-reports-that-flagged-graft-in-govt-projects
+

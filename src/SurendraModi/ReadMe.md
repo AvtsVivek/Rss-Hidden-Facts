@@ -28,7 +28,7 @@ I humbly enquired how can a dwarf like me, who cannot even speak properly can ex
 Then He gently smiled and said everything will be revealed in due course of time. 
 All the abilities need will be bestowed when time comes.
 He also mentioned that His glories will be chanted Aa Chandra Taararkam, as long as moon exists through my works.
-Then He raised his Abhay Hasta and then disappeared.
+Then He raised His Abhay Hasta and then disappeared.
 
 Aaah, I simply cannot describe my experience with words.
 
