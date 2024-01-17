@@ -272,3 +272,15 @@ The result is cow thieves are jubiliant, and who ever was trying to protect cows
 
 
 
+
+
+State Governments and UTs will be requested to consider the 
+recommendation for posting of Muslim police personnel in thanas 
+and Muslim health personnel and teachers in Muslim concentration 
+areas. –MHA 
+Health & Family Welfare, Human Resource Development andDepartment 
+of Personnel & Training will issue appropriateguidelines. Department 
+of Personnel & Training will be thenodal department for monitoring 
+this. - D/o Personnel & Training
+
+https://minorityaffairs.gov.in/WriteReadData/RTF1984/1658732073.pdf
