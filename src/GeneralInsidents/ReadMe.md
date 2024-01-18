@@ -284,3 +284,21 @@ of Personnel & Training will be thenodal department for monitoring
 this. - D/o Personnel & Training
 
 https://minorityaffairs.gov.in/WriteReadData/RTF1984/1658732073.pdf
+
+Communal forces in in India.
+https://youtu.be/mBJJNbL04g4?t=2773
+
+This Modi romes around the world with his 56 inches proving them wrong. 
+
+Because of this Modi Govt, entire hindu community is denigrated all over the world now.
+
+https://southasianvoices.org/the-bjp-and-the-rise-of-communal-violence/
+https://www.aljazeera.com/opinions/2020/3/11/the-bjp-has-incited-hatred-it-can-no-longer-stop
+
+
+
+https://www.abplive.com/news/world/saudi-arabia-foreign-affairs-minister-prince-faisal-bin-farhan-bin-abdullah-back-stand-on-india-jammu-kashmir-muslim-2500674
+https://www.livehindustan.com/national/story-saudi-arabia-shocks-india-gives-controversial-statement-on-muslims-of-jammu-kashmir-in-oic-meet-8744763.html
+https://www.youtube.com/watch?v=CfT30XWzNtM&t=4409s
+
+
