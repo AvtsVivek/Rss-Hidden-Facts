@@ -302,3 +302,36 @@ https://www.livehindustan.com/national/story-saudi-arabia-shocks-india-gives-con
 https://www.youtube.com/watch?v=CfT30XWzNtM&t=4409s
 
 
+
+
+
+https://youtu.be/Kp46Zl4hBNA?t=115
+We dont accept that hinduism is a relegion. Its a way of life.
+https://economictimes.indiatimes.com/news/politics-and-nation/hinduism-not-a-religion-but-a-way-of-life-pm-narendra-modi/articleshow/46955738.cms
+https://www.youtube.com/watch?v=mehRor0WwPw
+
+
+https://youtu.be/Kp46Zl4hBNA?t=235
+I dont do vote bank politics. Governments come and go 
+
+Stones deites statue deities Incredible India
+"क्या उन पत्थरों और मूर्तियों में Incredible India है क्या?" प्रधानमंत्री मोदी, जर्मनी दौरे के दौरान।
+https://www.facebook.com/IndiaSpeaksDaily/videos/%E0%A4%95%E0%A5%8D%E0%A4%AF%E0%A4%BE-%E0%A4%89%E0%A4%A8-%E0%A4%AA%E0%A4%A4%E0%A5%8D%E0%A4%A5%E0%A4%B0%E0%A5%8B%E0%A4%82-%E0%A4%94%E0%A4%B0-%E0%A4%AE%E0%A5%82%E0%A4%B0%E0%A5%8D%E0%A4%A4%E0%A4%BF%E0%A4%AF%E0%A5%8B%E0%A4%82-%E0%A4%AE%E0%A5%87%E0%A4%82-incredible-india-%E0%A4%B9%E0%A5%88-%E0%A4%95%E0%A5%8D%E0%A4%AF%E0%A4%BE-%E0%A4%AA%E0%A5%8D%E0%A4%B0%E0%A4%A7%E0%A4%BE%E0%A4%A8%E0%A4%AE%E0%A4%82%E0%A4%A4%E0%A5%8D%E0%A4%B0%E0%A5%80-%E0%A4%AE%E0%A5%8B%E0%A4%A6%E0%A5%80-%E0%A4%9C%E0%A4%B0%E0%A5%8D%E0%A4%AE/545725203764874/
+
+
+acypl welcomes pm @narendramodi (India to US 1993) back to DC! Here, he's outside of the @WhiteHouse in 1993
+https://twitter.com/ACYPL/status/516604674670350336
+https://www.acypl.org/who-we-are/notable-alumni/
+
+Its not that I have can apply to ACYPL and I may get an admission into it. ACYPL pple pick and choose a person, give them shcolorships etc. 
+
+How and why did they pick Modi? Its a mistery today. 
+
+Every recruitment into Indian Army, even the lowest level soldiers need background verification. 
+Whenever an army man goes on leave, he has to mention the address where he is going. Thats with in india. If he has to go outside of India, he has to take special permission.  
+
+Why cant we question Modi? Why did he not declare this, that he has taken training from ACYPL America? What happened in that training? What is tought?
+
+What if these questions are asked in the parlament?
+
+
