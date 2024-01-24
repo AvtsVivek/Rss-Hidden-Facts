@@ -153,13 +153,6 @@ https://www.thenewsminute.com/news/cag-transfers-officers-in-charge-of-reports-t
 
 
 
-RULLS database
-
-Random Unceasing Low Level Scattered Violence
-
-https://www.thejaipurdialogues.com/rulls/
-
-https://www.youtube.com/watch?v=Y6E0lmgp1TA
 
 
 The only footage westren media have is what the ccp wants them to see.
@@ -171,7 +164,7 @@ https://youtu.be/oUtiMYF8c7I?t=318
 FRI againest udhayanidhi stalin
 https://youtu.be/CfT30XWzNtM?t=129
 
-J&K Isamikaran
+J&K Islamikaran
 https://youtu.be/CfT30XWzNtM?t=4409
 
 Amrutkaal इमरतीलाल का अमृतकाल! || #ISD || Sandeep deo || Akshay Kapoor || Dr. Shilpi Tiwari
@@ -185,21 +178,24 @@ Meanwhile,
 
 --------------------------------------------------------------------------------------------------------
 
-Everyone is aware of RTI right? The Right to Information act, the UPA govt brought out way back in 2005.
+Everyone is aware of RTI right? The Right to Information act, the UPA govt brought it out way back in 2005.
 
 For many months now, I have been hearing that this RTI has become a joke, becuase pple file an RTI, then its pending for a long time, then the govt would say, the requested info doest not come under RTI and so the govt cannot provide the info. There was also a talk that RTI is slowly dying. See Ref 3.
 
-I was sceptical of such claims. An individual files a request, and the authority will provide if it is within his perview.
+I was sceptical of such claims. An individual files a request, and the authority will provide if it is within his perview. Simple.
 
-Then I came to know about this news where a Railway officer is transfered abruptly. He gave info regading the cost of PM Modi selfie booths. See Ref 1.
+Boy I was wrong. 
 
-I was not surprized by such transfers, because a few months ago CAG offices were transfered by the govt for exposing corruption. See Ref 2.
+Then I came to know about this news where a Railway officer is transfered abruptly. He revealed info regading the cost of PM Modi selfie booths. Ofcourse as a reponse to RTI, he simply did his duty. See Ref 1.
 
-So the message here is silent and clear. If something govt does not want you to know, you just cannot know. And the govt officers better be careful before giving out any info to the public with the govt does not like.
+I was not surprized by such transfers, because a few months ago CAG officers were transfered by the govt for exposing corruption. See Ref 2.
+
+So the message here is silent and clear. If something govt does not want you to know, you just cannot know. And the govt officers better be careful before giving out any info to the public which the govt(Modi) does not like.
 
 Hmm...Felt like we are slowly and studily moving towards China. In China the govt spends billons to ensure the only footage westren media have is what the ccp wants them to see.
 
-
+Its much better during UPA. People could talk freely then. And because of that, UPA fell. 
+Today if you ask a question, you are called a congressi. Anything againest Modi is today is an offence againest the country, Hindu relegion.
 
 Ref 1:
 http://timesofindia.indiatimes.com/articleshow/106499873.cms?utm_source=contentofinterest&utm_medium=text&utm_campaign=cppst
@@ -211,21 +207,6 @@ Ref 3:
 https://thediplomat.com/2023/08/modi-government-acts-to-hasten-the-slow-death-of-indias-right-to-information-act/
 
 --------------------------------------------------------------------------------------------------------
-
-How many of you came accross RULLS database?
-
-RULLS stands for Random Unceasing Low Level Scattered Violence
-
-Take a look at the following link. Open in a computer and not on a mobile. You can filter and get the links and details of news articles as well. 
-
-https://www.thejaipurdialogues.com/rulls/
-
-Right to self defence.
-Are we safe, Are our families safe, and can we follow our relegion. 
-The answer for all of the three is resounding NO.
-The number is staggering. 
-Amrutkaal इमरतीलाल का अमृतकाल! || #ISD || Sandeep deo || Akshay Kapoor || Dr. Shilpi Tiwari
-https://youtu.be/tVhtAQVMQXc?t=211
 
 
 
@@ -335,3 +316,5 @@ Why cant we question Modi? Why did he not declare this, that he has taken traini
 What if these questions are asked in the parlament?
 
 
+What ever he accuses of congress, he himself does it.
+https://www.youtube.com/watch?v=Fl1dC3si070
