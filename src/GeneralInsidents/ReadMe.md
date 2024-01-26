@@ -318,3 +318,87 @@ What if these questions are asked in the parlament?
 
 What ever he accuses of congress, he himself does it.
 https://www.youtube.com/watch?v=Fl1dC3si070
+
+
+https://youtu.be/JSbEY1e6cKc?t=3515
+Gujarat HC sentences 4 Gujarat cops police  to 14 days in jail for public flogging of 5 men
+
+What is their crime? The police had punished stone pelters. 
+How dare the police do that? 
+So what did that double engine Sarkar do?
+Filed a case againest them. 
+Yup!! The BJP Sarkar, the Hindu Hriday Samraat sarkar, Aache din lane wale sarkar has filed case againest the police.
+
+The message is silent and clear. 
+Dare not even look at Modi pple. 
+
+https://www.hindustantimes.com/india-news/4-gujarat-cops-sentenced-to-14-days-in-prison-for-publicly-flogging-muslim-men-101697702779322.html
+https://www.newindianexpress.com/nation/2023/Oct/20/gujarat-hc-sentences-4-cops-to-14-days-in-jail-for-public-flogging-of-5-men-2625613.html
+
+
+
+https://youtu.be/JSbEY1e6cKc?t=3700
+
+The Army officers are court marshelled, treating them like regular offenders.
+What is the offence? They encountered the jihadies.
+And what do you expect, the supreme leader got angry. 
+See for your self how this man is bragging blatently about it. 
+He is saying, my govt has launched an FIR aginest army for the first time. 
+https://www.youtube.com/watch?v=cZuT1DRqLPI&t=1560s
+He is systematically removing the spine from the armed forces, what to speak of regular Hindus.
+This happened 9 years ago, and boy, did we ever knew it?
+Even after look at this Video, still pple think this man to be Hindu Hriday Samrat, then only Lord Ram can help.
+Just think about it.
+Here comes this man to give justice to Kashmiries. So the army is doing injustice to Kashmiries right?
+Is this not the nerative of the Pakistan? What does Anti India forces say?
+Isnt this Jihadi Modi building the exact same nerative?
+Can you imagine the morale of the Armed forces.
+
+
+Do you know why BJP sarkar is delaying 2021 census. 
+Every this is degitilised and Aadhar is manditory. Govt has all the data. 
+Any one with a mobile has to reveal that data to the govt, the Aadhar number etc.
+But the govt does not want to others to know the same data.
+Another reason is Pasmanda number is double.
+https://youtu.be/JSbEY1e6cKc?t=3868
+
+In Western utter pradesh, brutal killings of saints, Brahmana, pujaries are today rampent.
+So congratulations for the Ram Rajya.
+https://youtu.be/JSbEY1e6cKc?t=3947
+https://www.jagran.com/uttar-pradesh/ayodhya-assistant-priest-of-hanuman-garhi-murdered-by-slitting-his-throat-when-police-reached-there-he-found-a-blood-soaked-body-23560082.html
+
+
+चौथी के छात्र ने हिंदू सहपाठी को ब्लेड मारा, शिकायत पर घरवालों को बुलाया: मुस्लिम अभिभावकों ने कक्षा में घुस बच्चों को गला घोंटा, 2 गिरफ्तार
+https://hindi.opindia.com/national/muslim-student-studying-in-class-4-in-vadodara-hit-a-hindu-student-with-a-blade/
+Double Engine Gujarat Model | Bjp Leader Kamal Rawat Champawat | Pushkar Singh Dhami |New Video 2023
+https://www.youtube.com/watch?v=Y6E0lmgp1TA&t=53s
+
+
+Prime Minister Narendra Modi’s washerman from 1970s dies in Godhra
+https://www.youtube.com/watch?v=_HJan2WXiQM&t=274s
+Narendra Modi spent a decade in the Rani Masjid Godhra as RSS Pracharak | New Video 2023
+
+https://youtu.be/IR8xH_wzWJU?t=683
+Fake government office in Gujarat swindled over Rs 4.15 crore govt funds in three years, two held
+https://www.deccanherald.com/india/gujarat/fake-government-office-in-gujarat-swindled-over-rs-415-crore-govt-funds-in-three-years-two-held-2745636
+
+
+https://youtu.be/IR8xH_wzWJU?t=752
+Gujarat ex-IAS officer arrested for running fake govt offices, siphoning Rs 18 crore
+https://indianexpress.com/article/cities/ahmedabad/gujarat-ex-ias-officer-arrested-for-running-fake-govt-offices-9046404/
+Ex-IAS officer arrested over Rs 18 crore scam
+http://timesofindia.indiatimes.com/articleshow/105579824.cms?utm_source=contentofinterest&utm_medium=text&utm_campaign=cppst
+
+BJP to deploy 30 lakh social media workers for 2024 polls
+https://indianexpress.com/article/cities/mumbai/bjp-to-deploy-30-lakh-social-media-workers-for-2024-polls-8968860/
+
+
+
+Modi Mocks At KCR’s Nimbu Mirchi Rituals, Brands Him Insecure Leader
+https://m.sakshipost.com/telangana-politics/2018/11/27/modi-mocks-at-kcrs-nimbu-mirchi-rituals-brands-him-insecure-leader
+
+Telangana CM K Chandrasekhar Rao is superstitious, relies on astrology, poojas, mirchi–nimbu: Prime Minister Narendra
+
+Read more at:
+https://mumbaimirror.indiatimes.com/news/india/telangana-cm-k-chandrasekhar-rao-is-superstitious-relies-on-astrology-poojas-mirchinimbu-prime-minister-narendra-modi/articleshow/66826208.cms?utm_source=contentofinterest&utm_medium=text&utm_campaign=cppst
+
