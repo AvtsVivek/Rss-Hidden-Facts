@@ -46,11 +46,6 @@ https://yt3.ggpht.com/lgBqnf4y8ttVueRfAAbxINHggbMLRRV9lyQprhf_GyJtO2fOOKH_Dt_iYM
 
 
 
-
-
-
-
-
 https://youtu.be/pPQc3Zi1Em0?t=489
 
 Some fun points.
@@ -72,3 +67,44 @@ If you think any of the above points are wrong, do let me know
 And there is more.
 
 Do you know who suffers the most because of SC/ST act?
+
+----------------------------------------------------------------
+
+mandal commission established by Janata Party
+Mandal Commission, officially known as the Socially and Educationally Backward Classes Commission (SEBC), was set up on 1st January 1979 by the Indian Government under the then Prime Minister Morarji Desai.
+
+reservation in promotion
+
+backlog reservation 
+
+minimum marks removal for reservation
+
+sc/st act ordinnce 
+
+sainik school reservation
+
+phule postal stamp
+
+Ambedkar bharat ratn
+
+Ambedkar Birthday Avkash
+
+200 point rooster
+
+73 % reservation in MP
+
+Reservation in NEET 
+
+panchayat election reservation
+
+pasmanda reservation
+
+mgnrega reservation
+
+pradhan mantri awas yojana reservation
+
+bank loan reservation
+
+government exam reservation 
+
+https://youtu.be/KW9tPrQlZu0?t=481

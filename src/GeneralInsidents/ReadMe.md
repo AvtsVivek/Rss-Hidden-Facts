@@ -246,15 +246,6 @@ https://twitter.com/narendramodi/status/886523958920585217
 The result is cow thieves are jubiliant, and who ever was trying to protect cows are now in in hiding. And they can be thrown in jail quoting any reason. Do you know Bitto Bajrangi?
 
 
-
-
-
-
-
-
-
-
-
 State Governments and UTs will be requested to consider the 
 recommendation for posting of Muslim police personnel in thanas 
 and Muslim health personnel and teachers in Muslim concentration 
@@ -321,7 +312,7 @@ https://www.youtube.com/watch?v=Fl1dC3si070
 
 
 https://youtu.be/JSbEY1e6cKc?t=3515
-Gujarat HC sentences 4 Gujarat cops police  to 14 days in jail for public flogging of 5 men
+Gujarat HC sentences 4 Gujarat cops police to 14 days in jail for public flogging of 5 men
 
 What is their crime? The police had punished stone pelters. 
 How dare the police do that? 
@@ -330,7 +321,7 @@ Filed a case againest them.
 Yup!! The BJP Sarkar, the Hindu Hriday Samraat sarkar, Aache din lane wale sarkar has filed case againest the police.
 
 The message is silent and clear. 
-Dare not even look at Modi pple. 
+Dare not even look at Modi's own pple. 
 
 https://www.hindustantimes.com/india-news/4-gujarat-cops-sentenced-to-14-days-in-prison-for-publicly-flogging-muslim-men-101697702779322.html
 https://www.newindianexpress.com/nation/2023/Oct/20/gujarat-hc-sentences-4-cops-to-14-days-in-jail-for-public-flogging-of-5-men-2625613.html
@@ -435,20 +426,6 @@ https://www.youtube.com/watch?v=s2VUXYNv424
 Needless to say, not a single word againjesgt Muslims even as they are butchering their own cadre.
 
 
-
-
-
-
-
-संघ परिवार और मौलाना वहीदुद्दीन
-Sangh parivar aur maulana wahiduddin Shankar Sharan
-https://www.indiaspeaksdaily.com/sangh-parivar-and-maulana-waheeduddin/
-https://hi.wikipedia.org/wiki/%E0%A4%AE%E0%A5%8C%E0%A4%B2%E0%A4%BE%E0%A4%A8%E0%A4%BE_%E0%A4%B5%E0%A4%B9%E0%A5%80%E0%A4%A6%E0%A5%81%E0%A4%A6%E0%A5%8D%E0%A4%A6%E0%A5%80%E0%A4%A8_%E0%A4%96%E0%A4%BE%E0%A4%A8
-
-https://hi.wikipedia.org/wiki/%E0%A4%AE%E0%A5%8C%E0%A4%B2%E0%A4%BE%E0%A4%A8%E0%A4%BE_%E0%A4%B5%E0%A4%B9%E0%A5%80%E0%A4%A6%E0%A5%81%E0%A4%A6%E0%A5%8D%E0%A4%A6%E0%A5%80%E0%A4%A8_%E0%A4%96%E0%A4%BE%E0%A4%A8
-
-
-
 Freedoms are already gone. What we have is reminants and ghosts of freedom.
 https://youtu.be/-s_4O0mAzZQ?t=87
 
@@ -459,5 +436,190 @@ https://www.youtube.com/watch?v=AmuvVZ31bl4
 
 
 Democracy is finished in Europe | Yanis Varoufakis
+https://youtu.be/565mNf8_YrU?t=160
 https://youtu.be/565mNf8_YrU?t=200
 Ultra right but these two which appear as enemies are essentially the two different sides of exactly the same coin they are symbiotic with one another I'll give you a very specific example take the president of France Emanuel macron I know him personally he's fine I actually quite liked him when when we used to talk and exchange ideas and so on but he's the representation of this liberal authoritarian establishment he's sounds very liberal very Democratic but he's head of a government that is as we speak it is um presiding over programs against uh French citizens of an ethnic Arab background they introduced laws by which they can take away your citizenship if you're an Arab uh French person uh without you knowing it no rule of law this is you know this is what the alra right are proposing so macron is in power he's only in power because he's opposed to the alter right people elected him because he was not Lee Pen because he was not the alter right in opposition to the alter right but in government he introduces the legislation of the alter right and he needs the right to be against him so that he remains in government to do what the alter right wants it's a great Paradox at the same time the alter right needs macron Lee Pen should thank macron every day because the reason why she's going doing well in the polls is because of her opposition with macron so this opposition is a fake opposition I'm not saying it's a conspiracy I'm sure they don't like each other but that's the point they need each other they may hate each other but they need each other because Lee Pen would not be Lee Pen without Macon macron will not be macron without Lee Pen why are the
+
+
+
+
+
+
+
+
+Gyanvapi Case : UP Police's action against Roshan Pandey in Varanasi | Sanatan First
+
+Roshan Pandey is accusing the local Varanasi administration of harassing him
+He has also alleged that police broke into his home without women constable and hit the women of his family and dragged them hair and banged their heads on the wall
+
+https://twitter.com/RituRathaur/status/1754448014188376561
+
+https://twitter.com/RituRathaur/status/1754461648843104573
+
+https://twitter.com/RituRathaur/status/1754474338252927277
+
+https://twitter.com/ArchanaaTiwari/status/1754405615391375858
+
+
+Marte Mujahid means Allah Ka Yodhah one who does jihad
+Zafar Sareshwala told how ''Marde Mujahid" destroyed H!ndu's Street Power VHP & Pravin Togadia .........
+https://twitter.com/RubyGuha/status/1555530324049903616
+https://twitter.com/chitrapadhi/status/1338115963074461698
+
+
+Delhi cop kicks namazis in Inderlok, suspended
+Tomar is seen pushing them and asking them to move, then then kicking and hitting two or three people
+The person recording the video can be heard saying they were in “sajda” — a position of prostration 
+
+Read more at:
+http://timesofindia.indiatimes.com/articleshow/108338001.cms?utm_source=contentofinterest&utm_medium=text&utm_campaign=cppst
+
+
+
+
+Gau-Alliance (GauAlliance, Gau Alliance) Joint Candidate K.Shiivkumar From Varanasi Loksabha Live | New Video 2024
+https://www.youtube.com/watch?v=VuMfgYCtTN4
+Yuga Thulasi Foundation
+https://twitter.com/yugatulasi?lang=en
+
+
+
+
+
+https://twitter.com/pasmanda_sultan
+https://twitter.com/GemsOfNaMo
+https://twitter.com/pushkal_dwivedi
+https://twitter.com/pasmanda_sultan
+https://twitter.com/Thakur_VishalS
+https://twitter.com/RituRathaur
+https://twitter.com/sdeo76
+https://twitter.com/AnkurSharma_Adv
+
+
+
+How to get supreme court judgements.
+
+https://main.sci.gov.in/judgments
+
+![search supreme court judgements](50_50_Seach_Judgements.jpg)
+
+
+
+Eisa koi Saga Nahi
+Jisko Usne Thaga Nahi
+Abto Khair Bacha Nahi
+https://youtu.be/ZItCcLnSICk?t=385
+
+Thali Bajao, Tali Bajao, Jhadu Lagao, Deep Jalao,
+https://youtu.be/ZItCcLnSICk?t=787
+
+Who is Raja Babu
+bollywood Actress Ki niyamit Supply
+
+https://youtu.be/ZItCcLnSICk?t=1347
+
+
+https://www.youtube.com/watch?v=PRpewBa7uC8
+
+https://twitter.com/RituRathaur/status/1781554559133143419
+
+https://sarkariyojnaa.org/inter-caste-marriage-scheme-maharashtra/
+
+https://meriyojana.com/dr-savitaben-ambedkar-intercaste-marriage-assistance-scheme/
+
+https://www.ambedkarfoundation.nic.in/assets/schemes/Inter%20caste%20marriace%20scheme.pdf
+
+https://mumbaimirror.indiatimes.com/others/sunday-read/its-all-in-the-sangh-parivar/articleshow/66573315.cms
+
+
+Many of RSS' ideas are Leftist, Hindutva is neither Left nor Right: Dattatraya Hosabale
+Read more At: 
+https://www.aninews.in/news/national/general-news/many-of-rss-ideas-are-leftist-hindutva-is-neither-left-nor-right-dattatraya-hosabale20211023020521/
+
+https://twitter.com/ANI/status/1451616599937454080
+https://twitter.com/ANI/status/1451633728527089665
+https://twitter.com/ANI/status/1451635147732750340
+
+
+
+
+Trollers, Bhasmasur, MasterStrokeWadis, 
+https://youtu.be/-wQZ5Ae_juQ?t=1250
+
+
+
+
+Maharana Pratap's Horse Chetak's Mother Was A Gujarati : Sh.Narendra Modi .. 
+https://twitter.com/bhatia_niraj23/status/1052555830078271488
+
+
+Covid, Covishield, 
+People Want Action Against Narendra Modi due to side-effects of Covishield | Sanatan First
+https://www.youtube.com/watch?v=QK2rn30ts-0
+
+
+
+कोविशिल्ड पर बड़ा खुलासा! || IndiaSpeaksdaily|| Sandeep deo || Madhu Kishwar || Manushi India
+https://www.youtube.com/watch?v=9uz5R9eO68w
+
+
+How people are dumb. 
+Students protesting do not know why they are protesting.
+Free Palestine Means Death to America? America Uncovered.
+https://youtu.be/b4S9aLg1oBE?t=130
+
+
+80 crore poor people will get free ration for 5 more years Modi 
+Gareeb Kalyan Ann Yojna
+https://youtu.be/qCsoLI_qRgc?t=31
+https://youtu.be/DUaZ1-Ib3yY?t=61
+
+Modi ki Revdi culture, u turn, 
+https://youtu.be/qCsoLI_qRgc?t=78
+https://youtu.be/wBYDMM20n-8?t=38
+
+Iron Law of Woke Projection
+They accuse others of exactly what they are doing.
+https://youtu.be/fCttkeJJPxc?t=525
+https://twitter.com/shanermurph/status/1643628954144628743?lang=en
+What is the Iron law of projection? 
+It states that anything that one accuses someone else of is something that one is guilty of oneself
+
+
+authoritarian redundancy. You must do it all times, no questions entertained.
+https://youtu.be/B48vdzb97lc?t=475
+
+
+
+
+Shankaracharya strike on Modi & Godi | The Mulk
+https://www.youtube.com/watch?v=RHaF2lAQtKc
+
+Kashi Temple destruction. 500 600 Old temples were destroyed. 
+https://youtu.be/RHaF2lAQtKc?t=177
+
+
+
+Peddi Math.
+Karnataka State when ruled by BJP, has given 50 lakh(lacks) to Peddi Math swami 
+Robert Rosaria
+
+https://youtu.be/JG-j914vR7Y?t=520
+
+Saadhvi Pragya
+https://youtu.be/JG-j914vR7Y?t=1580
+
+
+Andh Bhakt became Bhakt
+Bhakt became Kam Bhakt
+kam Bhakt became dumb bhakt
+https://youtu.be/sRrjpQSZ8U0?t=3080
+
+
+
+Who gave the idea of presenting the idea of Biggest Quran? Its RSS
+Why is it important to cross 400? 400 पार क्यों जरूरी है? New Video 2024
+https://youtu.be/cn4InamE8q8?t=530
+
+
+

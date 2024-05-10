@@ -30,7 +30,7 @@ Please take the following steps one by one patiently.
 
 1. Visit https://www.thejaipurdialogues.com/rulls/ web page on a computer and not on a mobile. It will be too small to see on mobile. 
 
-2. Note, if you have a VPN, you may need to turn it off. With my company VPN in place, this page is not showing up. I had to turn it off to see this page.
+2. Note, if you have a VPN, you may need to turn it off. With my company VPN in place on my laptop, this page is not showing up. I had to turn it off to see this page.
 
 3. Please read what they are saying about this page. Then scroll down till you see Track The VICTIM and Filter Separately section as follows.
 

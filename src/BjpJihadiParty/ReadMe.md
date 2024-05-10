@@ -4,15 +4,13 @@ Over the past several months, I have a growing feeling that BJP is a Jihadi Part
 
 BJP Mandiron ko Todta Jai while Pasmandas. 
 
-संघ परिवार और मौलाना वहीदुद्दीन
-Sangh parivar aur maulana wahiduddin
-https://www.nayaindia.com/main-stories/country-unaware-agenda-of-tablighi-jamaat-147712.html
+
 
 
 ---------------------------------
 
 
-I call Modi a Jihadi for two reasons. There could be more, but for now just 2. The first one today, the second one tomorrow. 
+I call Modi a Jihadi for two reasons. There could be more, but for now just 2. The first one today, the second one may be tomorrow. 
 
 The FIRST Reason. 
 
@@ -36,15 +34,19 @@ What is his reaction? Total silence as if nothing is happening at all.
 
 But when it comes to Hindus, he invokes Gandhi, we are supposed to Non Violent.  
 
-Challenge for you. Show me once sentence, statement or a piece of advice Modi has given to HIS pple in his decades long carrier.
+A simple challenge for you. Show me once sentence, statement or a piece of advice Modi has given to HIS pple in his decades long career.
 
-One single statement addressing the jihadies to exercise restraint, just one statement.
+Let me expand the scope for you. Try the with Mohan Bhagawat as well. One statement condeming the atrocities on Hindus.
 
-Take time to search on the net. You will reach the other end of the internet. But you will not find it. Why?  
+One single statement addressing his jihadi men to exercise restraint, just one.
+
+Take time to search on the net. You will reach the other end of the internet. But I can guarantee you will not find. Why?
 
 How can you expect a jihadi leader to restrain his pple doing jihad? Think about it. Do take a look at the references below.
 
-I will give the second Reason tommorrow.
+Remember Gandhi? He roamed around holding Gita in his hand. Whats the end result?
+
+I will give the second Reason in a day or two. This will definitely be more thought provoking.
 
 References 
 
@@ -111,14 +113,9 @@ Ref 10.
 हम सभी राजनीतिक दलों को गौरक्षा के नाम पर हो रही इस गुंडागर्दी की कड़ी भर्त्सना करनी चाहिए। 
 https://twitter.com/narendramodi/status/886523958920585217 
 
-  
-
 Ref 11. 
-
 गौरक्षा को कुछ असामाजिक तत्वों ने अराजकता फैलाने का माध्यम बना लिया है। इसका फायदा देश में सौहार्द बिगाड़ने में लगे लोग भी उठा रहे हैं। 
-
 https://twitter.com/narendramodi/status/886523450558341120 
-
 16 June 2017 
 
   
