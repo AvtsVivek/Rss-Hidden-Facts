@@ -18,3 +18,6 @@
 3. Modi govt gave Rs 68 crore subsidy to modernise slaughterhouses, reveals RTI query
    1. https://www.indiatoday.in/india/story/narendra-modi-government-bjp-slaughterhouses-1022430-2017-07-04
 
+
+Beef export company from mumbai chanda donation
+https://www.youtube.com/shorts/8OCL2XEuhhM

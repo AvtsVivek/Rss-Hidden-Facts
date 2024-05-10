@@ -243,7 +243,7 @@ https://twitter.com/narendramodi/status/886523855744909312
 हम सभी राजनीतिक दलों को गौरक्षा के नाम पर हो रही इस गुंडागर्दी की कड़ी भर्त्सना करनी चाहिए।
 https://twitter.com/narendramodi/status/886523958920585217
 
-The result is cow thieves are jubiliant, and who ever was trying to protect cows have to in hiding. And can be thrown in jail for quoting any reason. Do you know Bitto Bajrangi?
+The result is cow thieves are jubiliant, and who ever was trying to protect cows are now in in hiding. And they can be thrown in jail quoting any reason. Do you know Bitto Bajrangi?
 
 
 
@@ -402,3 +402,62 @@ Telangana CM K Chandrasekhar Rao is superstitious, relies on astrology, poojas, 
 Read more at:
 https://mumbaimirror.indiatimes.com/news/india/telangana-cm-k-chandrasekhar-rao-is-superstitious-relies-on-astrology-poojas-mirchinimbu-prime-minister-narendra-modi/articleshow/66826208.cms?utm_source=contentofinterest&utm_medium=text&utm_campaign=cppst
 
+
+
+शंकराचार्य जी का मोहन भागवत के मंशा पर राम मंदिर को लेकर भविष्यवाणी सच हुई | sanatan first
+Modi Ram Mandir Smarak 
+https://www.youtube.com/watch?v=Whf26JTB84k
+
+
+Pehle Shochalay phir Devalay
+https://www.youtube.com/shorts/JfxA9TxLgag
+
+RSS chief Mohan Bhagwat calls lynching in cow’s name 'anti-Hindutva'
+https://www.deccanherald.com/india/rss-chief-mohan-bhagwat-calls-lynching-in-cow-s-name-anti-hindutva-1004973.html
+
+Muslim Cleric Slams RSS Chief Mohan Bhagwat for Calling 'Lynching of Cow' Anti-Hindutva
+
+https://www.news18.com/news/politics/muslim-cleric-slams-rss-chief-mohan-bhagwat-for-calling-lynching-of-cow-anti-hindutva-3927638.html
+
+
+RSS Chief Mohan Bhagwat Launches Muslim Scholar’s Book “The Meeting Of Minds”
+https://indiaeducationdiary.in/rss-chief-mohan-bhagwat-launches-muslim-scholars-book-the-meeting-of-minds/
+
+
+prakriti ke virudh ram mandir andolan mohan bhagwat
+Mohan Bhagwat opposes Hindu groups bid to reclaim mosques; Wants 'amicable solution' for Gyanvapi
+https://www.youtube.com/watch?v=3HiiVO5maiA
+
+Why look for Shivling in every mosque? - Mohan Bhagavat
+https://www.youtube.com/watch?v=s2VUXYNv424
+
+50 वर्षों के लिए देवी देवताओं को भूल जाएं युवा - Mohan Bhagavat
+Needless to say, not a single word againjesgt Muslims even as they are butchering their own cadre.
+
+
+
+
+
+
+
+संघ परिवार और मौलाना वहीदुद्दीन
+Sangh parivar aur maulana wahiduddin Shankar Sharan
+https://www.indiaspeaksdaily.com/sangh-parivar-and-maulana-waheeduddin/
+https://hi.wikipedia.org/wiki/%E0%A4%AE%E0%A5%8C%E0%A4%B2%E0%A4%BE%E0%A4%A8%E0%A4%BE_%E0%A4%B5%E0%A4%B9%E0%A5%80%E0%A4%A6%E0%A5%81%E0%A4%A6%E0%A5%8D%E0%A4%A6%E0%A5%80%E0%A4%A8_%E0%A4%96%E0%A4%BE%E0%A4%A8
+
+https://hi.wikipedia.org/wiki/%E0%A4%AE%E0%A5%8C%E0%A4%B2%E0%A4%BE%E0%A4%A8%E0%A4%BE_%E0%A4%B5%E0%A4%B9%E0%A5%80%E0%A4%A6%E0%A5%81%E0%A4%A6%E0%A5%8D%E0%A4%A6%E0%A5%80%E0%A4%A8_%E0%A4%96%E0%A4%BE%E0%A4%A8
+
+
+
+Freedoms are already gone. What we have is reminants and ghosts of freedom.
+https://youtu.be/-s_4O0mAzZQ?t=87
+
+
+https://en.wikipedia.org/wiki/Nripendra_Misra
+https://www.youtube.com/watch?v=AmuvVZ31bl4
+
+
+
+Democracy is finished in Europe | Yanis Varoufakis
+https://youtu.be/565mNf8_YrU?t=200
+Ultra right but these two which appear as enemies are essentially the two different sides of exactly the same coin they are symbiotic with one another I'll give you a very specific example take the president of France Emanuel macron I know him personally he's fine I actually quite liked him when when we used to talk and exchange ideas and so on but he's the representation of this liberal authoritarian establishment he's sounds very liberal very Democratic but he's head of a government that is as we speak it is um presiding over programs against uh French citizens of an ethnic Arab background they introduced laws by which they can take away your citizenship if you're an Arab uh French person uh without you knowing it no rule of law this is you know this is what the alra right are proposing so macron is in power he's only in power because he's opposed to the alter right people elected him because he was not Lee Pen because he was not the alter right in opposition to the alter right but in government he introduces the legislation of the alter right and he needs the right to be against him so that he remains in government to do what the alter right wants it's a great Paradox at the same time the alter right needs macron Lee Pen should thank macron every day because the reason why she's going doing well in the polls is because of her opposition with macron so this opposition is a fake opposition I'm not saying it's a conspiracy I'm sure they don't like each other but that's the point they need each other they may hate each other but they need each other because Lee Pen would not be Lee Pen without Macon macron will not be macron without Lee Pen why are the

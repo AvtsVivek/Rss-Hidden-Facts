@@ -38,9 +38,9 @@ Please take the following steps one by one patiently.
 
 4. Try applying some filter using drop downs, you should see some table data being populated below it. Sometimes no data may show up, may be due to no data present for that filtration. 
 
-5. I am not sure; the filtration is working 100% correctly. But any most of the time it showing some data.
+5. I am not sure; the filtration is working 100% correctly. But most of the time it showing some data.
 
-6. In the last column of the you should see references. Try copying some of the urls there and paste it in a browser to ensure they are not broken.  
+6. In the last column you should see references. Try copying some of the urls there and paste it in a browser to ensure they are not broken.  
 
 7. Take some time and study this data. Again, on a computer not from a mobile. 
 
@@ -52,7 +52,7 @@ Ok. Now some questions that may arise.
 
 About authenticity of this data. 
 
-Firstly, the links given in the references seems to be correct. I checked many of them.
+Firstly, the links given in the references. They seem to be correct. I checked many of them.
 
 Secondly, is there a possibility that this analytics is manipulated to show that its increasing from 2014. Possible. Maybe I dont know. 
 But I do trust The Jaipur Dialogs founder Sanjay Dixit Ji. He is an Retd. IAS officer and I used to listen to his Videos. 
@@ -62,11 +62,11 @@ So lets assume that this data is valid and correct. Now a few thoughts from my s
 
 As you can see, they are steadily increasing. And I dont think it will come down any time soon.
 
-I tell you why. The Supreme Court gave 2.7 acre to winning side and 5 acers to the losing side.
+I tell you why. The Supreme Court gave 2.7 acre to winning side and 5 acers to the loosing side.
 
 Just now we all celebrated Lord Ram festival. Everywhere there are flags and festive mode never seen before.
 
-Now close your eyes and think about this. Do you know what the other side is thinking. If you think, its no brainer. 
+Now close your eyes and think about this. Do you know what the other side is thinking. If you think about it, its no brainer. 
 
 Their kids are provokingly saying - we are just waiting to see how big your temple will be. We will build bigger one.
 

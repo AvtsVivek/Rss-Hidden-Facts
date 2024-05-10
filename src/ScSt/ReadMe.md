@@ -28,3 +28,6 @@ https://twitter.com/ShubhamFdNP/status/1692099742728331504
 
 
 https://timesofindia.indiatimes.com/india/wont-allow-dilution-of-sc/st-act-pm-modi/articleshow/63754523.cms
+
+https://prsindia.org/billtrack/the-scheduled-castes-and-the-scheduled-tribes-prevention-of-atrocities-amendment-bill-2018
+
