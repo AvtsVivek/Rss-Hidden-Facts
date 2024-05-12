@@ -26,4 +26,71 @@ https://youtu.be/Y9TviIuXPSE
 Bezmenov: They can Rape Your Mind
 https://www.youtube.com/shorts/yP7F-qPJTsc
 
+Edward G Griffin
+https://youtu.be/yErKTVdETpw?t=102
 
+https://youtu.be/yErKTVdETpw?t=122
+Yuri Bezmenov is an expert of India and Indian languages
+
+Split loyalty. When an agent loves the country of his assignment more then his own country
+https://youtu.be/yErKTVdETpw?t=449
+
+
+India was a great civilization 6000 years ago.
+https://youtu.be/yErKTVdETpw?t=480
+
+
+Soviet union concentration camps.
+https://youtu.be/yErKTVdETpw?t=522
+
+
+Average person in the Soviet system does not like the system.
+https://youtu.be/yErKTVdETpw?t=615
+
+
+Escaping from USSR Embassy in New Delhi is crazy
+https://youtu.be/yErKTVdETpw?t=829
+
+
+Progressive Intellectuals of India
+https://youtu.be/yErKTVdETpw?t=1920
+
+Political Prostitutes.
+https://youtu.be/yErKTVdETpw?t=1955
+
+
+sumitranandan pant
+https://youtu.be/yErKTVdETpw?t=2000
+
+Keep the guests(Progressive Intellectuals, Political Prostitutes) Intoxicated
+https://youtu.be/yErKTVdETpw?t=2020
+
+
+Propaganda
+https://youtu.be/yErKTVdETpw?t=2170
+
+
+Fake proganad
+https://youtu.be/yErKTVdETpw?t=2411
+
+
+Useful Idiots
+https://youtu.be/yErKTVdETpw?t=2435
+
+
+Fake or Farce Weddings
+https://youtu.be/yErKTVdETpw?t=2811
+
+
+Political science Professor at Delhi University
+https://youtu.be/yErKTVdETpw?t=2943
+
+Useful Idiot
+https://youtu.be/yErKTVdETpw?t=2970
+
+
+Maharshi Mahesh Yogi
+https://youtu.be/yErKTVdETpw?t=3010
+
+Kgb was very facinated by the brainwashing center for stupid americans
+https://youtu.be/yErKTVdETpw?t=3047

@@ -17,7 +17,7 @@ In hindi.
 
 Note the words Ramzan and Haj. So who are these 850 "PEOPLE" for which this man is so desperate?
 
-Thats Modi(56 inch, Aaakh se Aaakh milaa kar bat karne wala) for you. BEGGING them. For what? 
+Thats Modi(56 inch, Aaakh se Aaakh milaa kar bat karne wala) for you. BEGGING them. For what? To let HIS pple be released from Saudi Prisons.
 
 Please Wait...There is more...
 
@@ -50,6 +50,8 @@ So yaah...What I am trying to say is the following.
 DONT BE STUPID. BE VERY VERY CAREFUL, especially with Modi and HIS PEOPLE. 
 
 DONT DARE to commit any offence AGAINEST HIM and HIS MEN even in a dream.
+
+Vishnu is son of Army officer. And how did this jihadi modi treat him?
 
 We need to continue to vote, chant sing and dance the glories of Modi and do Aarti to him.
 
