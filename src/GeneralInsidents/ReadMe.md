@@ -30,6 +30,9 @@ https://twitter.com/ANI/status/1722164827777577396
 Amit Shah On waqf board Property, digitization of waqf properties.
 https://www.youtube.com/watch?v=DBL3ZQwYbu0
 
+https://twitter.com/SIRBLOFELD/status/1572925190274949123
+https://twitter.com/RituRathaur/status/1572922373451714561
+
 Maharashtra CM Eknath Shinde along with Deputy CM Devendra Fadnavis reduces slaughter charges from 200 to 20
 https://youtu.be/fu4l4wDQoQA?t=570
 
@@ -436,9 +439,31 @@ https://www.youtube.com/watch?v=AmuvVZ31bl4
 
 
 Democracy is finished in Europe | Yanis Varoufakis
+
+Ok, so to start with, listen carefully to what Yanis Varoufakis, a Greek economist and Finance Minster says about French politics
+
+https://youtu.be/565mNf8_YrU&t=95s
+
+Ultra right but these two which appear as enemies are essentially the two different sides of exactly the same coin. They are symbiotic with one another.
+I'll give you a very specific example take the president of France Emanuel macron I know him personally he's fine I actually quite liked him when when we used to talk and exchange ideas and so on but he's the representation of this liberal authoritarian establishment he's sounds very liberal very Democratic but he's head of a government that is as we speak it is um presiding over programs against uh French citizens of an ethnic Arab background they introduced laws by which they can take away your citizenship if you're an Arab uh French person uh without you knowing it no rule of law this is you know this is what the alra right are proposing.
+
 https://youtu.be/565mNf8_YrU?t=160
-https://youtu.be/565mNf8_YrU?t=200
-Ultra right but these two which appear as enemies are essentially the two different sides of exactly the same coin they are symbiotic with one another I'll give you a very specific example take the president of France Emanuel macron I know him personally he's fine I actually quite liked him when when we used to talk and exchange ideas and so on but he's the representation of this liberal authoritarian establishment he's sounds very liberal very Democratic but he's head of a government that is as we speak it is um presiding over programs against uh French citizens of an ethnic Arab background they introduced laws by which they can take away your citizenship if you're an Arab uh French person uh without you knowing it no rule of law this is you know this is what the alra right are proposing so macron is in power he's only in power because he's opposed to the alter right people elected him because he was not Lee Pen because he was not the alter right in opposition to the alter right but in government he introduces the legislation of the alter right and he needs the right to be against him so that he remains in government to do what the alter right wants it's a great Paradox at the same time the alter right needs macron Lee Pen should thank macron every day because the reason why she's going doing well in the polls is because of her opposition with macron so this opposition is a fake opposition I'm not saying it's a conspiracy I'm sure they don't like each other but that's the point they need each other they may hate each other but they need each other because Lee Pen would not be Lee Pen without Macon macron will not be macron without Lee Pen why are the
+
+so macron is in power he's only in power because he's opposed to the ultra right people elected him because he was not Lee Pen because he was not the alter right in opposition to the alter right but in government he introduces the legislation of the alter right and he needs the right to be against him so that he remains in government to do what the alter right wants.
+
+It's a great Paradox. 
+https://youtu.be/watch?v=565mNf8_YrU&t=185s
+
+At the same time the alter right needs macron Lee Pen should thank macron every day because the reason why she's going doing well in the polls is because of her opposition with macron 
+
+https://youtu.be/565mNf8_YrU?t=199
+so this opposition is a fake opposition 
+I'm not saying it's a conspiracy I'm sure they don't like each other but that's the point they need each other they may hate each other but they need each other because Lee Pen would not be Lee Pen without Macon macron will not be macron without Lee Pen.
+
+So what do you understand by this? Again, it takes time. So be patient.
+
+
+
 
 
 
@@ -631,5 +656,63 @@ https://youtu.be/Dpr-Dq-PGq8?t=122
 The developement of internet and technology was the procivity of men to search for sexually provocative images or porn pornography
 Jordan Peterson - Describes Women's Hottest Sexual Fantasy 
 https://youtu.be/8VznMiVlBwk?t=31
+
+
+Covaxin Covishield
+Modi's Make in India hipocracy. When it comes to covid vaccine, he choose a foreign one, instead of indian made covaccine
+Astrozenica got support from the govt. And Desi, Bharat BioTech one did not get any support from the govt. 
+https://youtu.be/ZQ0aVSuIc1c?t=444
+
+How left and Islam mutual deal, convenience Rajiv Malhotra
+https://youtu.be/52ImW7Kcnos?t=363
+
+
+How left and Islam are incompatiable, Rajiv Malhotra
+https://youtu.be/52ImW7Kcnos?t=373
+
+
+What is wokism?
+Rajiv Malhotra
+https://youtu.be/52ImW7Kcnos?t=745
+
+Yes, you all are Wrong
+https://twitter.com/Ak5985965/status/1790308481238536222
+
+
+
+
+Modi की राह का रोड़ा Supreme Court ने हटाया? ||Indiaspeaksdaily || Sandeep deo | Lok Sabha Election
+https://www.youtube.com/watch?v=DtQGo26lq9w
+
+https://www.fairobserver.com/world-news/ian-bremmer-a-worthy-disciple-of-edward-bernays/#
+
+https://en.wikipedia.org/wiki/Propaganda_(book)
+
+
+CIA
+https://youtu.be/DtQGo26lq9w?t=2070
+
+
+How frequently PM Modi changes cloths.
+
+https://youtu.be/vsBWuT3W9f8?t=520
+https://x.com/ANI/status/1644968048787615745/photo/1
+https://x.com/ANI/status/1644968048787615745/photo/4
+
+Kapil Mishra speech 
+https://twitter.com/GurudathShettyK/status/1690307066169331713
+
+Brahmins are killed every day in UP
+https://twitter.com/mediacrooks/status/1791461388726239734
+
+
+
+
+The modi is the worest diveder for hindus.
+
+https://youtu.be/-Z5ADpZ3-7I?t=101
+
+Sapt Sankalp explained in detail
+https://youtu.be/Cnw_77Kqduo?t=240
 
 

@@ -93,4 +93,41 @@ Maharshi Mahesh Yogi
 https://youtu.be/yErKTVdETpw?t=3010
 
 Kgb was very facinated by the brainwashing center for stupid americans
+What kind of people from United States attend this school.
+Influential members of family, public openion makers, who come back to US with crazy stories about Indian philosophy.
+Indians themselves look upon them as useful Idiots.
 https://youtu.be/yErKTVdETpw?t=3047
+
+The pro soviet socialists were doomed for execution come revolution.
+https://youtu.be/yErKTVdETpw?t=3407
+The useful idots
+https://youtu.be/yErKTVdETpw?t=3430
+
+Political Prostitutes.
+https://youtu.be/yErKTVdETpw?t=3450
+
+Useful Idiots
+https://youtu.be/yErKTVdETpw&t=3585s
+
+To my horror nobody wants to believe
+https://youtu.be/yErKTVdETpw?t=3645
+
+
+Idilogical Subversion
+https://youtu.be/yErKTVdETpw?t=4055
+
+
+Unplug their bananas from their ears and see
+https://www.youtube.com/watch?v=yErKTVdETpw&t=4072s
+
+To change the perception of reality
+https://youtu.be/yErKTVdETpw?t=4135
+
+
+https://youtu.be/yErKTVdETpw?t=4069
+
+
+Useful idots as explained by Rajiv Malhotra
+https://youtu.be/52ImW7Kcnos?t=310
+
+
