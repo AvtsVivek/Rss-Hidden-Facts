@@ -21,6 +21,7 @@
 
 Beef export company from mumbai chanda donation
 https://www.youtube.com/shorts/8OCL2XEuhhM
+https://youtu.be/WWe2WRWxtb0?t=157
 
 https://www.aajtak.in/india/story/bjp-received-rs-2-50-crore-in-donations-from-companies-exporting-buffalo-meat-321090-2015-12-16
 

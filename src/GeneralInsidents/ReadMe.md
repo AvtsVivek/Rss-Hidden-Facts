@@ -414,10 +414,6 @@ Muslim Cleric Slams RSS Chief Mohan Bhagwat for Calling 'Lynching of Cow' Anti-H
 https://www.news18.com/news/politics/muslim-cleric-slams-rss-chief-mohan-bhagwat-for-calling-lynching-of-cow-anti-hindutva-3927638.html
 
 
-RSS Chief Mohan Bhagwat Launches Muslim Scholar’s Book “The Meeting Of Minds”
-https://indiaeducationdiary.in/rss-chief-mohan-bhagwat-launches-muslim-scholars-book-the-meeting-of-minds/
-
-
 prakriti ke virudh ram mandir andolan mohan bhagwat
 Mohan Bhagwat opposes Hindu groups bid to reclaim mosques; Wants 'amicable solution' for Gyanvapi
 https://www.youtube.com/watch?v=3HiiVO5maiA
@@ -714,5 +710,81 @@ https://youtu.be/-Z5ADpZ3-7I?t=101
 
 Sapt Sankalp explained in detail
 https://youtu.be/Cnw_77Kqduo?t=240
+
+
+What Is Critical Race Theory?
+https://www.youtube.com/watch?v=421AKguZS3s
+
+
+BJP supporters are bain dead. Low IQ
+https://youtu.be/ByikgMuIBTs?t=2881
+
+https://www.youtube.com/watch?v=ByikgMuIBTs
+
+
+America Banana Republic
+Tulsi Gabard
+
+
+Vivek Ramaswamy
+I’m ashamed that people here are asking me what the hell is going on in my own country.
+https://www.youtube.com/watch?v=LK8vPkqdxco
+
+Elon Musk
+Elon Musk Notices Something About the Trump Verdict No One Noticed
+https://youtu.be/k1b8VT2VWsA?t=40
+
+
+
+When will this modi govt will collapse?
+May 18th 2025.
+
+https://youtu.be/_YaTSWwzHqc?t=1790
+
+
+Andh Bhakt
+https://youtu.be/_YaTSWwzHqc?t=2400
+
+
+
+
+Pending
+https://youtu.be/_YaTSWwzHqc?t=2308
+
+In just the last week alone, 4 terror attacks in Jammu, innocent Hindu piligrims killed, army javans injured.
+Just picking up pace in ethnic clensing of Hindus, now in Jammu!!
+In Manipur, Hundreds of Hindus displaced, Houses are burnt, CM himself was attached.
+And what this Hindu blood sucker is doing? 
+Roming around the world photo shooting?
+
+Aag lagi basti Mein,
+Modi ApniHi masti mein,
+
+And what about the 
+Andha Bhakta Brunda?
+Hhmmm
+Yatha Raaja Tatha praja...
+Well they are also in their trans..
+
+Who can blame them?
+
+Well....
+
+Since 2014, a new strain of brain dead zamat started breeding in this country. 
+Jitna Bhi bolo...
+Bol Bol ke Apna Sir Phodo ...
+Kuch sunna nahi....
+Padha nahi nahi....
+Samajh naa to bilku hi nahi....
+
+Baas, aab ye madari Yoga karryegaa...
+zamat bhi modi modi jap karega...
+
+Jab Khanayya Lal was killed, muooh band..
+Bhai... Timing bhi to hoti hai...
+Come elections.... Hhaannn ... Vote to mangengee... Khanayya Lal ke naam par.. 
+Kyon nahi... Desh ke seva mein...
+
+
 
 
