@@ -745,7 +745,8 @@ https://youtu.be/_YaTSWwzHqc?t=1790
 Andh Bhakt
 https://youtu.be/_YaTSWwzHqc?t=2400
 
-
+Andh Bhakt crying.
+https://www.youtube.com/shorts/E3JtaXclJy8
 
 
 Pending

@@ -8,4 +8,5 @@ Issues about china
    4. Their writings are studied and followed like the holy bible.
    5. Employers are required to attend weekly group sessions to study the holy scriptures together.
 
-2.  
+2.  And the delusion sails obleviously onwords.
+3.  https://youtu.be/UZFQDKfeyEE?t=160
