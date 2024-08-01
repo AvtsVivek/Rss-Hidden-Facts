@@ -298,7 +298,7 @@ acypl welcomes pm @narendramodi (India to US 1993) back to DC! Here, he's outsid
 https://twitter.com/ACYPL/status/516604674670350336
 https://www.acypl.org/who-we-are/notable-alumni/
 
-Its not that I have can apply to ACYPL and I may get an admission into it. ACYPL pple pick and choose a person, give them shcolorships etc. 
+Its not that I can apply to ACYPL and I may get an admission into it. ACYPL pple pick and choose a person, give them shcolorships etc. 
 
 How and why did they pick Modi? Its a mistery today. 
 
@@ -788,4 +788,23 @@ Kyon nahi... Desh ke seva mein...
 
 
 
+The devine intervention
+https://www.youtube.com/watch?v=UvQAg7BPm8k&t=47s
+
+This is the definition of a miracle. The odds of this happening are so infinitesimal that divine intervention is a more probable explanation			
+https://twitter.com/DineshDSouza/status/1813333865546875192
+
+Take a close look, then pray.
+
+You didn't witness luck, you witnessed divine intervention.
+https://twitter.com/JoeConsorti/status/1813301708925424085
+
+I like when science proves a miracle. 
+
+God Angels surrounding Trump
+
+There is no other explanation 
+
+This is *not* luck
+https://twitter.com/bennyjohnson/status/1813309085929877687
 

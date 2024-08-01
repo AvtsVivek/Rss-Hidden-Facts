@@ -75,6 +75,14 @@ https://youtu.be/iZ4iX4rAMK8?t=6136
 
 Fake cases againest Men. 
 https://youtu.be/GkU1rRXdmGs?t=830
+Bns, Bhartiya Nyay Samhita, 
+https://youtu.be/oGuc89wExAg?t=420
+Breaking the family
+https://youtu.be/oGuc89wExAg?t=790
+Mens Commession
+https://youtu.be/oGuc89wExAg?t=830
+Section 69 is completely wrong. 
+https://youtu.be/oGuc89wExAg?t=881
 
 1.  Culture, temples and Its Protection, Page 15 of Manifesto
 https://youtu.be/iZ4iX4rAMK8?t=6488
