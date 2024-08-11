@@ -21,6 +21,11 @@ There is no recourse for Men anywhere in this country.
 https://youtu.be/oGuc89wExAg?t=215
 
 
+Sober for 7.5 Years: Alcohol, Drugs & Body Count comes with Severe Consequences
+This is the worst time in humanity to be a man. 
+https://youtu.be/9MCikBXZLW8?t=480
+
+
 All the laws are anti men(anti-men, antimen), anti family(anti-family, antifamily)
 https://youtu.be/oGuc89wExAg?t=290
 
@@ -123,3 +128,10 @@ https://www.youtube.com/@ShwetabhGangwar1
 
 
 
+Mens problems in China
+
+https://youtu.be/0urFD77mDbM?t=90
+
+
+What is a passport bro?
+https://www.youtube.com/shorts/VRSjJtVOuEk

@@ -17,3 +17,23 @@ Issues about china
 China and flood and Mao
 https://youtu.be/tdfACb1KV0s?t=2000
 
+
+Severe consequences of social media.
+https://youtu.be/S_7mFiivNxo?t=550
+
+This is the worst time, in the histroy of humanity to be a man. There is no doubt about it. 
+https://youtu.be/S_7mFiivNxo?t=630
+
+
+My child, Since you have decided to pursue a political acreer, you must take the advice I give below to hear.
+1. Do not seek the truth; do not try to understand the truth of the matter. Let the intellectuals purse truth. Remeber this, anthing beneficial to you is correct. Let's put it this way. What the superors advocate is simply correct. 
+
+2. Learn to tell lies and be good at it. Treat lying as a habit no as a carrier. 
+
+3. 
+
+Why are Chinese officials so corrupt?
+https://www.youtube.com/watch?v=M7ry2Mm-ljE
+
+lye flat, let it rot.
+https://youtu.be/epZZVpPB630?t=74

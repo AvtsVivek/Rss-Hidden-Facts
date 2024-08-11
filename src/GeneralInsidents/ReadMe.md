@@ -724,7 +724,8 @@ https://www.youtube.com/watch?v=ByikgMuIBTs
 
 America Banana Republic
 Tulsi Gabard
-
+I Was Added To A Terrorist Watchlist (Quiet Skies)
+https://www.youtube.com/watch?v=L1wy_kppu5U
 
 Vivek Ramaswamy
 I’m ashamed that people here are asking me what the hell is going on in my own country.

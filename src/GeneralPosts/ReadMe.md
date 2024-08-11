@@ -7,6 +7,8 @@ How many of you understand stage 4 of Subversion?
 Since 2014, a new strain of brain dead zamat started breeding in this country. 
 Jinko kuch sunna nahi, 
 
+Abbasi Hindu, Mansik Khatna 
+https://youtu.be/5NWsqHQk66M?t=2580
 
 In just the last week alone, 4 terror attacks in Jammu, innocent Hindu piligrims killed, army javans injured.
 Just picking up pace in ethnic clensing of Hindus, now in Jammu!!
