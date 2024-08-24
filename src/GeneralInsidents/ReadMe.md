@@ -809,3 +809,19 @@ There is no other explanation
 This is *not* luck
 https://twitter.com/bennyjohnson/status/1813309085929877687
 
+
+How women vote.
+Women vote based on emotions and emotions get in the way of logic.
+
+https://rumble.com/v5bpy97-this-country-is-run-by-children-hardly-davidson-backs-down-sorta-and-us-job.html?start=980
+
+Doctors are useless, do not trust doctors. 
+
+https://www.youtube.com/watch?v=WO7iisgt77Y
+
+
+They Sell You Problems, Then They Sell You Solutions.
+All shampoo has chemical ingredients that aid in hair fall. they have tons of law suites.
+Then there are products they claim they fix hair fall, by the same companies. 
+https://www.youtube.com/shorts/JZTf-x-yKe0
+

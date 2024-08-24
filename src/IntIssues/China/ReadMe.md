@@ -37,3 +37,18 @@ https://www.youtube.com/watch?v=M7ry2Mm-ljE
 
 lye flat, let it rot.
 https://youtu.be/epZZVpPB630?t=74
+
+
+
+archeology 
+https://youtu.be/AHGHagmPp8M?t=30
+
+
+CCPs(China) downfall is written on the wall.
+https://youtu.be/I5YMaERkIhc?t=970
+
+
+Xi is here to bring down the ccp.
+https://youtu.be/I5YMaERkIhc?t=975
+
+
