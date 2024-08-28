@@ -48,7 +48,10 @@ CCPs(China) downfall is written on the wall.
 https://youtu.be/I5YMaERkIhc?t=970
 
 
-Xi is here to bring down the ccp.
+Xi is here to bring down the ccp. The great accelerator.
+He is doing everything to bring down the regime, kill the economy, 
 https://youtu.be/I5YMaERkIhc?t=975
+
+
 
 
