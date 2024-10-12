@@ -619,6 +619,9 @@ https://www.youtube.com/watch?v=RHaF2lAQtKc
 Kashi Temple destruction. 500 600 Old temples were destroyed. 
 https://youtu.be/RHaF2lAQtKc?t=177
 
+@IndiaspeaksdailyISD 400 साल बाद भारत में फिर से औरंगजेब का शासन? #indiaspeaksdaily #ytshortsvideos
+https://www.youtube.com/shorts/RWPk8kbu9EY
+
 
 
 Peddi Math.
@@ -815,13 +818,6 @@ Women vote based on emotions and emotions get in the way of logic.
 
 https://rumble.com/v5bpy97-this-country-is-run-by-children-hardly-davidson-backs-down-sorta-and-us-job.html?start=980
 
-Doctors are useless, do not trust doctors. 
 
-https://www.youtube.com/watch?v=WO7iisgt77Y
-
-
-They Sell You Problems, Then They Sell You Solutions.
-All shampoo has chemical ingredients that aid in hair fall. they have tons of law suites.
-Then there are products they claim they fix hair fall, by the same companies. 
-https://www.youtube.com/shorts/JZTf-x-yKe0
-
+Maharashtra cabinet approves salary hike for madarsa teachers | Bittu bajrangi | Eknath Shinde
+https://www.youtube.com/watch?v=UPBrGz7SnoQ

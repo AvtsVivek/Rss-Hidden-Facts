@@ -54,4 +54,21 @@ https://youtu.be/I5YMaERkIhc?t=975
 
 
 
+Why FSSAI banned A2 Milk | Live with Shivali Miglani
+https://www.youtube.com/watch?v=9vAaioAO_9U
+
+And ofcourse it withdrew the advisory
+https://indianexpress.com/article/explained/everyday-explainers/explained-fssai-advisory-a1-a2-milk-9537796/
+
+
+henry kissinger, The 7 Americans Beijing loves the most!
+https://www.youtube.com/watch?v=9ZVazkuio7E
+https://youtu.be/9ZVazkuio7E?t=262
+
+A bad custom and population problems make marriage unaffordable
+https://www.youtube.com/watch?v=LEwFl6HiUgA
+
+The chads problems. A very large percentage of girls are aiming for top 5 Percent of successiful men.
+In other words, wealthy and accomplished urban men have an unlimited pool of women to choose from, while the average man, cant find a women. 
+https://youtu.be/LEwFl6HiUgA?t=243
 

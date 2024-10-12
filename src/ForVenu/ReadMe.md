@@ -121,3 +121,16 @@ https://www.youtube.com/watch?v=YkG0SxvXbqA
 
 
 https://www.youtube.com/watch?v=sd4D4WZ_xTc
+
+
+IIT Mumbai salary. 20K per month.
+https://youtu.be/CLUb5cDLpqI?t=136
+
+IPhone madness.
+https://youtu.be/UxNxeqREDW4?t=119
+
+
+JUST 19 YEARS OLD, GAURAV HADA SUCCUMBED TO FALSE ALLEGATIONS | HEAR A DISTRAUGHT FATHER
+https://www.youtube.com/watch?v=wAJa0uUnxHs&rco=1
+
+

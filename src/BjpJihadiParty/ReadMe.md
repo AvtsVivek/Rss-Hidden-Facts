@@ -118,7 +118,10 @@ Ref 11.
 https://twitter.com/narendramodi/status/886523450558341120 
 16 June 2017 
 
-  
+
+#BJP’s Union minister #Piyush Goyal says he reads #Kalma La Ilaha illallah Muhammadur Rasool #Allah
+Every day during morning pooja, puja he says 
+https://www.youtube.com/watch?app=desktop&v=3wqnfh-IMvY  
 
   
 
