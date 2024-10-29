@@ -34,5 +34,14 @@ https://twitter.com/epanchjanya/status/1808417030392938872
 https://youtu.be/CLpQolw5R-Y?t=721
 
 
+Modi's Untraceable Roadmap 2047: '15 Lakh People Consulted', But PMO Has No Papers
+https://thewire.in/government/modi-15-lakh-roadmap-2047-rti-no-record
+
+narendra modi's 2047 plan is bullsh*t
+https://www.youtube.com/watch?v=4Mk64k42W8A
+
+
+Narendra Modi's Untraceable Roadmap For 2047 | New Video 2024
+https://www.youtube.com/watch?v=agoU0bO80f8
 
 
