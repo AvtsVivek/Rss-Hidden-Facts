@@ -550,7 +550,30 @@ https://meriyojana.com/dr-savitaben-ambedkar-intercaste-marriage-assistance-sche
 
 https://www.ambedkarfoundation.nic.in/assets/schemes/Inter%20caste%20marriace%20scheme.pdf
 
+It’s all in the (Sangh) parivar: RSS's power couples
 https://mumbaimirror.indiatimes.com/others/sunday-read/its-all-in-the-sangh-parivar/articleshow/66573315.cms
+
+क्या मोदी का 'एक हैं तो सेफ हैं' नारा केवल भारत की आम जनता और गरीब जनता तक ही सीमित है❓
+
+लोकसभा स्पीकर ओम बिरला जी की बेटी अंजलि बिरला की कल शादी हो गई है। अंजलि बिरला की शादी बिजनेसमैन अनीस राजानी से हुई है।
+
+कब जागोगे अंधभक्तों???
+
+https://x.com/SakshiGupta_AAP/status/1856742143458521259
+
+https://x.com/Cute__maahi/status/1856585020896661919
+
+https://x.com/sanju_singh27/status/1856600667571531813
+
+
+लोकसभा स्पीकर ओम बिरला की बेटी अंजली बिरला का विवाह अनीस रजानी से हुआ है
+अनीस रजानी हिंदू है ना कि मुस्लिम हमे पिछ्ली पोस्ट मे सिर्फ उर्दू नामी लिखा क्योंकि उनका नाम उर्दू अनीस है
+लेकिन अनीस रजानी का परिवार के नाम पता चलने पर हमने पोस्ट डिलीट कर दिया है
+पिछली पोस्ट के लिए खेद
+https://x.com/Tanvirpaece/status/1856659443082989819
+
+Om Birla's Daughter Anjali Birla and Aneesh Rajani get married in Kota | New Video 2024
+https://youtu.be/Mr5keLu82j8?t=143
 
 
 Many of RSS' ideas are Leftist, Hindutva is neither Left nor Right: Dattatraya Hosabale
@@ -821,3 +844,7 @@ https://rumble.com/v5bpy97-this-country-is-run-by-children-hardly-davidson-backs
 
 Maharashtra cabinet approves salary hike for madarsa teachers | Bittu bajrangi | Eknath Shinde
 https://www.youtube.com/watch?v=UPBrGz7SnoQ
+
+
+Tablets in Madras and 300 rupees for Sanskrit students.
+https://youtu.be/91n5FPXXBGE?t=1223

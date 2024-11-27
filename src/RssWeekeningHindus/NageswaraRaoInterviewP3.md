@@ -34,6 +34,11 @@ https://youtu.be/BRQFB2vKgmU?t=1851
 
 
 
+Have you ever head of this? One who lost is given 5 acers of land, and who one is given 2.5 acers of land.
+Ram Mandir Judgement Former CJI DY Chandrachud's Next Journey ? चंद्रचूड़ की अगली पारी | New Video 2024
+Vishal Views https://youtu.be/d1zYRpLQWFw?t=852
 
+ISD - CJI DY Chandrachud Farewell: यह सच बताने के लिए जस्टिस चंद्रचूड़ की सेवानिवृत्ति का मुझे इंतजार था! Ram Mandir Judgement
+https://youtu.be/Wjo054uk7Ao?t=1057
 
 

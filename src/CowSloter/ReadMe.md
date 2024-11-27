@@ -19,6 +19,16 @@
    1. https://www.indiatoday.in/india/story/narendra-modi-government-bjp-slaughterhouses-1022430-2017-07-04
 
 
+अगर भाजपा सत्ता में है तो गौहत्या जायज है ,
+भाजपा अगर विपक्ष में तो नाजायज है।
+If you are in power, then cow sloter is valid, if you are in opposition, then its invalid.
+https://x.com/ErDurgeshPande7/status/1856372003097190772
+
+
+
+
+
+
 Beef export company from mumbai chanda donation
 https://www.youtube.com/shorts/8OCL2XEuhhM
 https://youtu.be/WWe2WRWxtb0?t=157
@@ -192,3 +202,5 @@ https://youtu.be/cn4InamE8q8?t=1740
 
 2. Test 2
 3. Test 3
+
+https://x.com/ErDurgeshPande7/status/1856372003097190772
