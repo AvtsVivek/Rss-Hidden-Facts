@@ -45,3 +45,33 @@ Narendra Modi's Untraceable Roadmap For 2047 | New Video 2024
 https://www.youtube.com/watch?v=agoU0bO80f8
 
 
+
+
+Akshay Kapoor Talks
+Modi's new stories | Huien Tsang | Indian Visas | Trump Inauguration 
+https://www.youtube.com/watch?v=IIoWYDHOwZo
+
+Megalomaniac Modi and complete out of touch with reality.
+https://youtu.be/IIoWYDHOwZo?t=560
+
+Bangaldeshi Muslim and Rohingya want to come to india and these are allowing them into this country.
+https://youtu.be/IIoWYDHOwZo?t=590
+
+How BSF is allowing Bangaldeshi Muslim and Rohingya in to India.
+
+
+Aung San Suu Kyi
+For a long time, She worked againest Rohingya in Burma.
+
+https://youtu.be/IIoWYDHOwZo?t=1225 
+Modi said to her dont distroy your image on Rohingya issue.
+
+https://youtu.be/IIoWYDHOwZo?t=1270
+
+When Aung San Suu Kyi, in her own country, a noble prize winner, when she was opposing the attrociites of Rohingyas aginest her own people, Modi goes there and says dont destroy your image.
+https://youtu.be/IIoWYDHOwZo?t=1290
+
+This Modi brings Rohingyas in lakhs, in a complete open border policy, as long as who are comming inside of this country is not a hindu.
+If there is a Refuse is a Hindu Woman, with a child, then they will be fired and killed.
+
+

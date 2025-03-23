@@ -146,3 +146,20 @@ https://youtu.be/wkEkI8POzm4?t=746
 Being a software developer is the scariest thing. 
 https://www.youtube.com/watch?v=wkEkI8POzm4&t=883s
 
+
+लड़के 4 बातें याद रखें, प्यार, तुम्हें बर्बाद कर देगा। Boys Beware! 
+https://www.youtube.com/watch?v=rfjSeUq3Zxk
+
+
+He Saved Her Life So She Decided To Destroy His
+https://www.youtube.com/watch?v=UxR6k0APOdw
+
+He should have let her chocked to death. 
+https://youtu.be/UxR6k0APOdw?t=869
+
+
+Abuse As Entertainment: A Puzzling Reality For Millions Of Men
+https://www.youtube.com/watch?v=zCXCvYhrrwU
+
+
+

@@ -1,4 +1,5 @@
 
+MensIssues, Mensu Issues
 
 Live in relation ship. 
 Court said ok to have live in relationships.
@@ -135,3 +136,53 @@ https://youtu.be/0urFD77mDbM?t=90
 
 What is a passport bro?
 https://www.youtube.com/shorts/VRSjJtVOuEk
+
+
+Married Mens suicide rate in india
+1 lac 8000
+NCRB data. This is because of domestic issues.
+https://youtu.be/EKaJPmeW7Es?t=615
+Jyoti Tiwari Pandey Explains Atul Subhash-Nikita Singhania Issue | Accenture | अतुल सुभाष-निकिता
+
+
+Chris Williamson's "Tall Girl Theory" - Why Women Are Outperforming Men
+High heels effect.
+https://youtu.be/9RCUdvfwr_U?t=268
+
+Education is more expensive, and housing is twice as expensive.
+https://youtu.be/27npfCCavq0?t=846
+
+Scott Galloway vs Piers Morgan
+
+Most anxious obese depressed addicted, lonely more likely to kill themselves, generation in history.   
+https://youtu.be/27npfCCavq0?t=858
+
+Masculinity in crisis
+https://youtu.be/27npfCCavq0?t=1484
+
+The most dangerous person in the world is a lonely broke young man.
+https://youtu.be/27npfCCavq0?t=1605
+
+
+https://youtu.be/BUdI24g2d6s?t=538
+'The Boys at the Back of the Queue' | The Gender Gap Reversal: How Society is Failing Our Young Men
+
+https://www.centreforsocialjustice.org.uk/wp-content/uploads/2025/03/CSJ-The_Lost_Boys.pdf
+https://www.centreforsocialjustice.org.uk/library/lost-boys
+
+How Society is Failing Our Young Men
+https://www.youtube.com/watch?v=C0rNSkkfLgw
+
+https://www.dailymail.co.uk/news/article-14453369/mens-wages-womens-gender-pay-gap-grows.html
+
+
+
+https://www.youtube.com/watch?v=wXice_feJmk
+Duke Lacrosse Scandal: The The Truth Finally Emerges
+
+
+
+https://www.youtube.com/watch?v=osOjhlgZJCo
+This Is How Modern Women With No ACCOUNTABILITY Excuse Their BAD Behaviour | Pearl Daily
+
+

@@ -131,4 +131,34 @@ https://youtu.be/QgIQIi6j8jM?t=5
 https://youtu.be/QgIQIi6j8jM?t=580
 
 
- 
+Priyanka Gandhi Vadra ने संसद में जो किया वह BJP से उम्मीद थी! parliament today @IndiaspeaksdailyISD
+History was created in Parlament, Congress Asaduddin Owaisi was asking about Hindu in Bangladesh
+But BJP Foreign miniser was saying Minorities(but not hindu)
+https://www.youtube.com/watch?v=b_XPwCLGUUo
+
+Indian govt gives palestine aid
+https://youtu.be/b_XPwCLGUUo?t=690
+https://youtu.be/b_XPwCLGUUo?t=644 
+
+Priyanka Gandhi Vadra bag
+https://youtu.be/b_XPwCLGUUo?t=708
+
+Then Sangh Patrika PanchaJanya gives mis information
+https://youtu.be/b_XPwCLGUUo?t=730
+https://panchjanya.com/2024/12/16/376465/bharat/priyanka-vadra-reached-parliament-with-palestine-support-bag-users-raised-questions-about-her-silence-on-bangladesh-hindus/
+
+Then next day priyanka raises voice for Bangladesh hindus in parlament
+https://youtu.be/b_XPwCLGUUo?t=779
+
+BJP Govt is just holding on the tail of Nehru for the last 10 years
+https://youtu.be/b_XPwCLGUUo?t=1020
+https://youtu.be/b_XPwCLGUUo?t=1260
+
+Next Owaisi talks about Hindu in the parlament.
+https://x.com/MNageswarRaoIPS/status/1868817604296511520
+
+Last week Asaduddin Owaisi MP has asked a question in Lok Sabha as to what steps the Government of India is taking to ensure that Hindus in Bangladesh are protected and Temples are protected.
+
+In reply the External Affairs Minister Dr S. Jaishankar said, "With regard to the treatment of Minorities in Bangladesh ........" No Hindu
+
+

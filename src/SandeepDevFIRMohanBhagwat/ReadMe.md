@@ -52,3 +52,22 @@ Reality of RSS BJP exposed by Sandeep Deo
 https://www.youtube.com/watch?v=t-yXzUW_pJc
 
 
+
+https://www.youtube.com/watch?v=Q5VMnjs44BE
+A new legal notice sent to RSS
+This is a Deeni Snaghatan
+https://youtu.be/Q5VMnjs44BE?t=365
+
+
+RSS Never stands for Hindus
+https://youtu.be/Q5VMnjs44BE?t=400
+
+
+Why did they not fight for independence?
+Because we are protectors of Hindus, not to fight britishers
+https://youtu.be/Q5VMnjs44BE?t=600
+
+
+They will go to temple only when they want to take photos
+https://youtu.be/Q5VMnjs44BE?t=720
+

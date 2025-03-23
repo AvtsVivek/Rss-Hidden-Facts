@@ -10,7 +10,7 @@ https://youtu.be/BRQFB2vKgmU?t=2550
 https://youtu.be/BRQFB2vKgmU?t=2805
 
 
-3. Hindus are under the greatet threat in this govt.
+3. Hindus are under the greatest threat in this govt.
 https://youtu.be/BRQFB2vKgmU?t=2812
 
 

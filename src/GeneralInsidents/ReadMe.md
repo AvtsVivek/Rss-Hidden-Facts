@@ -848,3 +848,18 @@ https://www.youtube.com/watch?v=UPBrGz7SnoQ
 
 Tablets in Madras and 300 rupees for Sanskrit students.
 https://youtu.be/91n5FPXXBGE?t=1223
+
+
+
+
+
+Bro... At its very core, modern civilization is to delude the masses, and one way its achieved is by introducing complexity. So the increasing complexity you see is by design. And until everything is stuck, there is no way you can reduce it. 
+AI Won't Fix the Fundamental Flaw of Programming
+https://www.youtube.com/watch?v=82JpGhctWpU
+
+
+Americans Don't Get China, how propaganda works.
+Like wise and in gerenal, Indians dont get the ruling elite.  
+https://youtu.be/K0Oo0BNLcwY?t=469
+
+

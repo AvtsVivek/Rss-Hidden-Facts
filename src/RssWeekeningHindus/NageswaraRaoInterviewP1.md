@@ -84,6 +84,30 @@ https://indianexpress.com/article/cities/delhi/pm-cares-fund-public-authority-rt
 ![PM Cares](images/50_50_PMCares.jpeg)
 
 
+PM Care(PMCare) Fund, is out of RTI. 
+https://youtu.be/y1bNWtKqbPU?t=5742
+
+So where do you think, PM Care Funds have gone? This Maha Choor Chowkidar has pocketed that money, and then, given it to whom? Any guesses? 
+
+Now Streaming | Why is PM Cares financial statements a secret? Poonam Agarwal, Dhanya Rajendran
+
+
+The government employees were made to donate from their salaries.
+https://youtu.be/DI98yC8JRWU?t=260
+
+No RTI for PM Care
+https://youtu.be/DI98yC8JRWU?t=273
+
+The problem is similar to PM National Relief fund. Both PM Care and PM National Relief fund.
+https://youtu.be/DI98yC8JRWU?t=350
+
+PM Cares Fund collected More than 3000 Crores in the first month alone
+https://youtu.be/DI98yC8JRWU?t=408
+
+The current dispensation does not like questions, transperency and data.
+https://youtu.be/DI98yC8JRWU?t=490
+
+
 Selling out India.
 https://youtu.be/BRQFB2vKgmU?t=836
 https://frontline.thehindu.com/the-nation/air-india-sold-to-tata-group-for-a-song/article37255654.ece

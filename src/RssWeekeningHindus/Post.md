@@ -457,3 +457,7 @@ Nageshwar Rao said, he has evidence, and that he can defend in court. And most o
 Maybe what I will do is, as I get time, will try to post with some evidence on those points.
 
 
+BJP distanced itself from Kashmire Kasmiri Pandit issue. not genocide, but its palayan, exodus. Its not a holocaust, its simply migration. 
+भाजपा सरकार ने अब कश्मीर में 1990 में हुए घटना को किया इन्कार ! || #isd || Sandeep deo
+https://youtu.be/xWe4fJsmHhY?t=39
+

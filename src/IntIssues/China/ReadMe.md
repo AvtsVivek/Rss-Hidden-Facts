@@ -72,3 +72,40 @@ The chads problems. A very large percentage of girls are aiming for top 5 Percen
 In other words, wealthy and accomplished urban men have an unlimited pool of women to choose from, while the average man, cant find a women. 
 https://youtu.be/LEwFl6HiUgA?t=243
 
+
+China's actual population. Its around 30 to 50 percent. 
+
+https://www.youtube.com/watch?v=ftcLM3502_8
+How I used AI to calculate China’s real population
+
+https://www.youtube.com/live/047o546q8Ek
+China’s fake population explains its faltering economy, October 8 live
+
+
+Ghost cities, merged villages, collapsing businesses: Where did life go?
+https://youtu.be/xM26_z3Y4mk?t=60
+
+
+
+generosity disease.
+China hands out billions to Africa, while their own people are in distress.
+
+https://www.youtube.com/shorts/V5j0X3ZL5MM
+
+
+
+
+https://www.youtube.com/watch?v=sPJJZRpVTNY
+
+On Bhramaputra River.
+China is Building the Biggest Dam in the World—Why?
+
+
+China’s next leader? Uncertainties of Xi’s health & rule
+https://youtu.be/-3q2WaE6AJ0?t=143
+Establishing a successor is a risky  business. 
+All want to rule for life, 
+The successor may become too powerful.
+
+
+
