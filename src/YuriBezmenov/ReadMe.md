@@ -131,3 +131,24 @@ Useful idots as explained by Rajiv Malhotra
 https://youtu.be/52ImW7Kcnos?t=310
 
 
+
+
+Some references
+
+Former KGB Agent, Yuri Bezmenov, Warns America About Socialist Subversion
+https://www.youtube.com/watch?v=Z1EA2ohrt5Q
+
+
+Yuri Bezmenov: A Love Letter to America
+https://www.youtube.com/watch?v=d_mTWBgNuQ0
+
+
+https://www.youtube.com/watch?v=iuPwMyKxBbk
+वैश्विक Brainwash के खेल की सच्चाई Shweta Purohit से जानिए! | @IndiaspeaksdailyISD | Sandeep deo
+
+
+
+
+
+
+

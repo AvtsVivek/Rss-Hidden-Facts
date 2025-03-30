@@ -75,3 +75,17 @@ This Modi brings Rohingyas in lakhs, in a complete open border policy, as long a
 If there is a Refuse is a Hindu Woman, with a child, then they will be fired and killed.
 
 
+Hipocracy.
+Modi as a tea seller, he does not have a photo, 
+But he has a photo of all kinds of photos.
+https://youtu.be/GW9AJ2CEF-E?t=1030
+
+Modi takes France Alliance membership
+https://youtu.be/GW9AJ2CEF-E?t=1080
+
+In 1980 there is a receipt for 120 rupees for the membership of British Library
+https://youtu.be/GW9AJ2CEF-E?t=1095 
+
+ACYPL them selvs choose a person, not the other way.
+https://youtu.be/GW9AJ2CEF-E?t=1145
+

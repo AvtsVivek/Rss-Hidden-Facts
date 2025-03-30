@@ -24,4 +24,8 @@ Avtaripurush
 
 BalNarandra 
 
+गोधराअसुर
 
+Butcher of Gujrat.
+
+Father of appeasement, Tustikaran Pitamah

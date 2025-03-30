@@ -186,3 +186,34 @@ https://www.youtube.com/watch?v=osOjhlgZJCo
 This Is How Modern Women With No ACCOUNTABILITY Excuse Their BAD Behaviour | Pearl Daily
 
 
+
+https://www.youtube.com/watch?v=Ff4cWYdckZM
+Are Men Becoming More Feminine? The Hard Truth About Modern Men... In this dating and relationship advice video, I will share the hard truth about modern men and help answer the question of are modern men are becoming more feminine. As gender roles shift, some see men becoming more feminine as a sign of progress, while others worry that modern men are losing their traditional masculinity. The reality is that modern men are navigating a world with changing expectations; embrace this dating advice to understand whether men are becoming more feminine.
+
+As modern men embrace emotional intelligence and self-care, many people wonder if men becoming more feminine is a real trend or just an exaggeration. Some view modern men becoming more feminine as a weakening of traditional masculinity, while others believe modern men are simply adapting to new social norms. To stay informed on this evolving discussion ensure you watch to the end for more insights and clarity on whther modern men are becoming feminine men, changing gender dynamics, and what it all means for dating and relationships.
+ 
+As your wingmam, female wingman, and dating coach for men, I want to make dating easier. I hope you find this dating advice for men helpful.
+
+If you are asking any of the following questions or searching for: 
+Are men becoming more feminine
+Men becoming more feminine
+Feminine men
+Modern men
+Men becoming feminine
+and more, well, I believe this dating advice for men video will give you the clarity you need. 
+
+00:00 - Introduction
+01:11 - Demonization of masculinity
+02:43 - Over emphasis on feelings over actions
+04:01 - The death of masculine role models
+07:05 - The comfort culture is making men soft 753 masculine activities
+08:06 - The fear of confrontation
+10:30 - The rise of passive dating behavior
+12:27 - The rise of dependency on others
+13:38 - The disconnection from physical strength
+15:17 - The loss of independence
+17:17- The addiction to instant gratification
+18:25 - Conclusion
+
+
+

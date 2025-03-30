@@ -863,3 +863,12 @@ Like wise and in gerenal, Indians dont get the ruling elite.
 https://youtu.be/K0Oo0BNLcwY?t=469
 
 
+https://www.youtube.com/watch?v=ZKeaw7HPG04
+Aaron Russo's Documentary America Freedom To Fascism Dir cut.
+
+
+Womens Lib
+Reflections & Warnings - An Interview with Aaron Russo (FULL)
+https://www.youtube.com/watch?v=LSGZ4Hkdyg4
+
+
