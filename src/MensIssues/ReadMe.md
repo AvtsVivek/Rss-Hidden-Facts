@@ -1,12 +1,12 @@
 
-MensIssues, Mensu Issues
+MensIssues, Mens Issues, Mens-Issues
 
 Live in relation ship. 
 Court said ok to have live in relationships.
 Children born out of Live in relation
 https://youtu.be/oGuc89wExAg?t=35
 
-But what if a girl in live in relation ship files a complint.
+But what if a girl in live in relation ship files a complaint.
 The boy will be in jail.
 https://youtu.be/oGuc89wExAg?t=55
 
@@ -14,7 +14,7 @@ If she wants a break up from your, or simply she wants to black mail you for wha
 https://youtu.be/oGuc89wExAg?t=100
 
 The social and personal relations will become even more complex.
-Say a baby is born out of livein relation, and the girl simply wants to get rid of the boy friend, she can simply file a case and the boy will have to pay compensation for the baby, with the risk of boy going to jail.
+Say a baby is born out of live-in relation, and the girl simply wants to get rid of the boy friend, she can simply file a case and the boy will have to pay compensation for the baby, with the risk of boy going to jail.
 https://youtu.be/oGuc89wExAg?t=110
 
 
@@ -27,7 +27,7 @@ This is the worst time in humanity to be a man.
 https://youtu.be/9MCikBXZLW8?t=480
 
 
-All the laws are anti men(anti-men, antimen), anti family(anti-family, antifamily)
+All the laws are anti men(anti-men), anti family(anti-family)
 https://youtu.be/oGuc89wExAg?t=290
 
 
@@ -37,7 +37,7 @@ https://youtu.be/oGuc89wExAg?t=305
 A new fear psychosis for men
 https://youtu.be/oGuc89wExAg?t=320
 
-Not just affair, just rome around with a girl, the boy can potencially be in trouble. 
+Not just affair, just rome around with a girl, the boy can potentially be in trouble. 
 https://youtu.be/oGuc89wExAg?t=330
 
 Cases againest men are about to explode.
@@ -216,4 +216,42 @@ and more, well, I believe this dating advice for men video will give you the cla
 18:25 - Conclusion
 
 
+There must be incentives for family structure to stop from collapsing.
+fifty percent reduction in tax if you both stay together
+another twenty five percent reduction in tax if you have a second child.
+Or may be provide a home-loan with zero interest rate.
+https://youtu.be/nDDC8GrygI0?t=315
+
+Divorce must be penalized.
+
+"Show me the incentive, and I'll show you the outcome" by Charlie Munger, highlights the power of incentives in shaping human behavior and outcomes.
+
+Charlie Munger's quote underscores the idea that incentives, whether positive (rewards) or negative (penalties), are powerful motivators that drive people's actions and decisions. 
+
+
+https://www.youtube.com/shorts/vQjRjEFQPAk
+One of the saddest things in the world today that nobody talks about is how the only reason a lot of guys are still alive is so that people they love and care about wont have a dead brother, son, or a friend.
+See the comments on that video.
+
+
+
+https://x.com/Solomon_Buchi/status/1743602708341276756
+
+https://youtu.be/YldadcAEThg?t=51
+
+“Why are we here today?” the chairwoman asked.
+“To make revolution,” they answered.
+“What kind of revolution?” she replied.
+“The Cultural Revolution,” they chanted.
+“And how do we make Cultural Revolution?” she demanded.
+“By destroying the American family!” they answered.
+“How do we destroy the family?” she came back.
+“By destroying the American patriarch,” they cried exuberantly.
+“And how do we destroy the American patriarch?” she probed.
+“By taking away his power!”
+“How do we do that?”
+“By destroying monogamy!” they shouted.
+“How can we destroy monogamy?”
+“By promoting promiscuity, eroticism, prostitution, abortion, and homosexuality!” they resounded.
+Gress, 73–74
 

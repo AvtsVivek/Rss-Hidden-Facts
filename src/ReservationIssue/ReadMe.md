@@ -68,6 +68,11 @@ And there is more.
 
 Do you know who suffers the most because of SC/ST act?
 
+
+-----------------
+
+https://youtu.be/3VC7PLQxDbA?t=1605
+
 ----------------------------------------------------------------
 
 mandal commission established by Janata Party

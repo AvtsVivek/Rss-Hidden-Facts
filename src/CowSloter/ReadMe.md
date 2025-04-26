@@ -194,8 +194,7 @@ https://indianexpress.com/article/north-east-india/meghalaya/eat-more-beef-than-
 
 Ref 24. https://www.boomlive.in/law/supreme-court-electoral-bonds-lok-sabha-elections-2024-poll-campaign-donors-political-donations-24589
 
-Sachar Committee 
-https://youtu.be/cn4InamE8q8?t=1740
+
 
 
 1. Test1

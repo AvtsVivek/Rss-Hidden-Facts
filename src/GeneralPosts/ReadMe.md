@@ -44,3 +44,16 @@ Bhai... Timing bhi to hoti hai...
 Come elections.... Hhaannn ... Vote to mangengee... Khanayya Lal ke naam par.. 
 Kyon nahi... Desh ke seva mein...
 
+
+https://youtu.be/CqsvnGrf4xQ?t=2575
+The youth of India, demographic dividend or demographic debt.
+
+
+
+
+Where does the word hindu come from?
+I have not fully looked into this video, but its there here.
+Shankaracharya ji के मंच से ISD के संपादक Sandeep deo ने हिंदू समाज के लिए पेश किया दो प्रस्ताव!
+
+https://www.youtube.com/watch?v=ZOdtFpxpb9U
+

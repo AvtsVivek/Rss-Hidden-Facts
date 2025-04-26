@@ -75,6 +75,13 @@ https://youtu.be/LEwFl6HiUgA?t=243
 
 China's actual population. Its around 30 to 50 percent. 
 
+China’s population is just a fraction of 1.4 billion
+https://www.youtube.com/watch?v=UM57HhM8yV8
+
+Full Video.
+The Vanishing Billion: Exposing China’s Population Myth
+https://www.youtube.com/watch?v=aFbMWq-xvXU
+
 https://www.youtube.com/watch?v=ftcLM3502_8
 How I used AI to calculate China’s real population
 

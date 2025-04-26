@@ -27,7 +27,8 @@ https://twitter.com/ANI/status/1722164827777577396
 
 #WATCH | Maharashtra CM Eknath Shinde along with Deputy CM Devendra Fadnavis inaugurated the new office of the Maharashtra State Waqf Board in Mumbai
 
-Amit Shah On waqf board Property, digitization of waqf properties.
+Amit Shah On waqf board Property, digitization(digitisation) of waqf properties.
+digitisation means legitimization
 https://www.youtube.com/watch?v=DBL3ZQwYbu0
 
 https://twitter.com/SIRBLOFELD/status/1572925190274949123
@@ -459,9 +460,33 @@ I'm not saying it's a conspiracy I'm sure they don't like each other but that's 
 So what do you understand by this? Again, it takes time. So be patient.
 
 
+In similar lines how BJP and Trunamlool congress play fixed match  
+https://youtu.be/3VC7PLQxDbA?t=100
 
+Waqf is pro muslim and Pasmanda PM him self said.
+https://youtu.be/3VC7PLQxDbA?t=130
 
+In bengal there are elections in 26. 
+https://youtu.be/3VC7PLQxDbA?t=162
 
+Why does not center do any thing?
+https://youtu.be/3VC7PLQxDbA?t=217
+
+Hindu Marega to Vote karega
+https://youtu.be/3VC7PLQxDbA?t=239
+
+You can get quite far in a democracy if you can convince a majority that they are victims of a minority, and that only you can protect them.
+
+https://x.com/Kasparov63/status/756503082448654336
+Garry Kasparov Russian Chess Grand Master
+
+https://youtu.be/jvTUZueX8O4?t=18
+
+Nice article.
+https://theaidem.com/ajay-kamath-islamophobia-majoritariansm/
+
+The croud in BJP Rally is sourced from Triramool or Mamta Benarjee
+https://youtu.be/3VC7PLQxDbA?t=243
 
 
 
@@ -727,6 +752,9 @@ https://twitter.com/GurudathShettyK/status/1690307066169331713
 Brahmins are killed every day in UP
 https://twitter.com/mediacrooks/status/1791461388726239734
 
+https://youtu.be/3VC7PLQxDbA?t=608
+https://youtu.be/3VC7PLQxDbA?t=1255
+https://youtu.be/3VC7PLQxDbA?t=4070
 
 
 
@@ -872,3 +900,54 @@ Reflections & Warnings - An Interview with Aaron Russo (FULL)
 https://www.youtube.com/watch?v=LSGZ4Hkdyg4
 
 
+Vivekanand and Freemason Society
+https://youtu.be/3VC7PLQxDbA?t=775
+
+
+Ambedkar, Jyotirao Phule
+https://youtu.be/3VC7PLQxDbA?t=1202
+
+
+There is an old saying.
+Question: What words you never want to here? 
+Answer: I am from Governemnt, and I am here to help.
+https://youtu.be/unMXvnY2FNM?t=431
+ColdFusion - We Can’t Afford Groceries, Yet Billionare Wealth is Exploding
+
+Buy borrow and die technique
+https://youtu.be/unMXvnY2FNM?t=600
+
+If Not Modi Then Who? What Is The Alternative? |@Indiaspeakdaily | Sandeep deo | BJP Government
+
+MK Gandhi
+Pressure Group
+Hindu Maha Sabha - Madan Mohan Malveia, Congress
+1926 - RSS
+1930 - Savarkar turned Hindu Mahasabha into a political party.
+https://youtu.be/KgWNN3GpoCU?t=2730
+
+Nehru, Akhara(Akhada) Parishad 1948
+https://youtu.be/KgWNN3GpoCU?t=2772
+
+
+1948 - Akhil Bharatiya Rama Rajya Parishad. KarpatriJi ki Party
+https://youtu.be/KgWNN3GpoCU?t=2859
+Hindu code bill, Gaw(go) Raksha
+
+Morarji Desai, CIA salaray 20K dollar per year
+https://youtu.be/KgWNN3GpoCU?t=3319
+
+https://indiaspeakdaily.in/my-answer-to-those-who-keep-hindus-enslaved-through-what-is-the-alternative/
+
+What BJP has done for their M community
+Satchar Committe implimented.
+21 lac acare land was now transfered to Muslim community, through WAQF
+The UPSC precentage of Muslims, now increased from 2.5 Percent to 6 percent and counting. 
+The government job share of 5 percent is increased to 11 percent.
+There are 300 schemes running just for Musliims.
+40% of resources are under their control.
+
+The entire govt is run by deep state. 
+Even supreme court also works for deep state.
+
+Our spineless leaders have made entire congrigation into mental slaves, who cant think any thing other Modi BJP RSS, even though they have not done anything for Hindus.
