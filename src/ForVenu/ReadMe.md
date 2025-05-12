@@ -162,4 +162,7 @@ Abuse As Entertainment: A Puzzling Reality For Millions Of Men
 https://www.youtube.com/watch?v=zCXCvYhrrwU
 
 
+Born In Debt: There Is No Way To Get Away From Debt In America.
+https://www.youtube.com/watch?v=xFdEPVld7y8
+
 

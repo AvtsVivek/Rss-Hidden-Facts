@@ -81,3 +81,5 @@ https://theaidem.com/ajay-kamath-islamophobia-majoritariansm/
 
 
 
+Stockholm syndrome and useful idiots. 
+

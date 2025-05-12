@@ -951,3 +951,25 @@ The entire govt is run by deep state.
 Even supreme court also works for deep state.
 
 Our spineless leaders have made entire congrigation into mental slaves, who cant think any thing other Modi BJP RSS, even though they have not done anything for Hindus.
+
+
+हर साल गायब हो रही है 5 लाख बेटियां! | @Indiaspeakdaily | Ashwini Upadhyay
+Every year 5 lakh lack Girls and Women are abducted in this country.
+https://www.youtube.com/watch?v=sUSL3j4ruh0
+
+
+https://www.livemint.com/news/india/justice-nagarathna-questions-demonetisations-impact-on-black-money-eradication-98-currency-came-back-11711804183485.html
+
+Justice Nagarathna questions demonetisation's impact on black money eradication: '98% currency came back'
+
+NoteBandi, demonitization.
+Balck money, Its a failure
+https://youtu.be/bcC9Yk3t-Oo?t=566
+
+
+Acharya Pramod Krishnam
+
+https://x.com/AcharyaPramodk/status/1919954866903937424
+
+https://x.com/zoo_bear/status/1920004516587450838
+

@@ -114,5 +114,9 @@ Establishing a successor is a risky  business.
 All want to rule for life, 
 The successor may become too powerful.
 
+Toilets in China revolution, and Xi crack down. 
+https://youtu.be/QL8YssuPvYE?t=191
 
+Most of data from china is fake. And these days, its not even published anymore.
+So watch the above video to get an idea of how analysts deduce the results.
 
