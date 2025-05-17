@@ -120,3 +120,8 @@ https://youtu.be/QL8YssuPvYE?t=191
 Most of data from china is fake. And these days, its not even published anymore.
 So watch the above video to get an idea of how analysts deduce the results.
 
+
+Suicide capital of the world, the plastic surgery capital of the world.
+Korea  
+https://youtu.be/UxdtJD9J9P8?t=145
+

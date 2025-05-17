@@ -58,6 +58,9 @@ RAW agents were killed.
 Indra Kumar Gujral weakest 
 https://youtu.be/bJC_HG9A-BA?t=3311
 
+The weakest PM of India, Vishal View says
+https://youtu.be/p4uqtALdt_0?t=310
+
 
 19th PM cancelled his visit, then no security, and let the Pehlgaon attack happened. 
 https://youtu.be/bJC_HG9A-BA?t=3780

@@ -24,8 +24,16 @@ Avtaripurush
 
 BalNarandra 
 
-गोधराअसुर
+गोधराअसुर, Godhra Asur, GodhraAsur 
 
 Butcher of Gujrat.
 
 Father of appeasement, Tustikaran Pitamah
+
+Pasmanda Sultan, पसमांदा सुल्तान 
+
+रंगीला रसूलेंद्र 
+
+Panauti Manhus (PM)
+
+पसमांदासुर 
