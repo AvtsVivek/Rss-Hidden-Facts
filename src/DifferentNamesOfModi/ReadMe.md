@@ -37,3 +37,20 @@ Pasmanda Sultan, पसमांदा सुल्तान
 Panauti Manhus (PM)
 
 पसमांदासुर 
+
+अंध भक्त, सेकुलर हिन्दू, अब्बासी हिन्दू, सरकारी हिन्दू, मास्टरस्ट्रोक वादी हिन्दू
+
+
+ceasefireandra
+
+Surrender Sultan.
+
+चीन पर चुप्पी स्वदेशी पर ज्ञान, वाह सरेंडर सुल्तान!|@Indiaspeakdaily Sandeep deo
+
+https://www.youtube.com/watch?v=tHctodY5rck
+
+
+Sindurilal Ji
+
+
+
