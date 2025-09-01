@@ -97,3 +97,83 @@ https://youtu.be/p4uqtALdt_0?t=72
 Sahab ko Sindhoor Dalke Suhag Raat se Bhagneki Aadat hai
 https://youtu.be/p4uqtALdt_0?t=332
 
+
+
+
+
+
+
+
+Three lies of Amit Shah right in the parlament.
+POK, NRC, and three terrorists died during opration sindoor(Sindhoor) and Operation Mahadev. 
+https://youtu.be/CnUz-5bdt8c?t=2287
+https://youtu.be/CnUz-5bdt8c?t=2408
+
+https://youtu.be/CnUz-5bdt8c?t=3445
+
+
+Nana Nehru
+https://youtu.be/CnUz-5bdt8c?t=2500
+
+
+
+Pakistan was given early warning, Intimation.
+https://youtu.be/CnUz-5bdt8c?t=2540
+
+Advance notice to pakistan.
+https://youtu.be/CnUz-5bdt8c?t=2590
+
+Questions asked by opposition.
+https://youtu.be/CnUz-5bdt8c?t=2610
+
+Priyanka Gandhi taking responsibility on 26/11
+Resignation of Home Minister and CM of Maharastra
+https://youtu.be/CnUz-5bdt8c?t=2700
+
+
+China, 
+https://youtu.be/CnUz-5bdt8c?t=2805
+https://www.youtube.com/watch?v=CnUz-5bdt8c&t=3514s
+Manufacturing Hub, to trade hub.
+
+
+Coward Kaayar Sarkar, 
+https://youtu.be/CnUz-5bdt8c?t=2850
+
+
+The most traitor government. JanSangh Sarkar, Morarji Desai 
+https://youtu.be/CnUz-5bdt8c?t=2900
+
+
+Prime Minister PM lying, that operation Sindhoor(Sindoor) is going on, but cricket match is about to happen
+https://youtu.be/CnUz-5bdt8c?t=2938
+
+
+Just fooling around.
+https://youtu.be/CnUz-5bdt8c?t=3032
+
+
+Summary about opration Sindoor.
+https://youtu.be/CnUz-5bdt8c?t=3033
+Look what Manish Jain is saying.
+https://youtu.be/CnUz-5bdt8c?t=3720
+
+
+ED, Enforcement Directorate
+Election Data. The government will not give election data.
+https://youtu.be/CnUz-5bdt8c?t=3240
+
+Suprement Cour about Election Commission and Bihar Election.
+https://youtu.be/CnUz-5bdt8c?t=3355
+
+
+ACYPL Modi roming around 29 states of the US, after Babri Masjid episode.
+https://youtu.be/CnUz-5bdt8c?t=3572
+https://youtu.be/CnUz-5bdt8c?t=3685
+
+
+Nehru in Russia(USSR) for three days, Sandeep Dev has written this in Kahani Communiston ki
+https://youtu.be/CnUz-5bdt8c?t=3580
+
+
+

@@ -89,8 +89,27 @@ https://www.youtube.com/live/047o546q8Ek
 China’s fake population explains its faltering economy, October 8 live
 
 
+China's 1.4 Billion Population is a Complete Lie (It's Much Lower) | Lei
+https://www.youtube.com/watch?v=FW8zalzvH-I
+
+
 Ghost cities, merged villages, collapsing businesses: Where did life go?
 https://youtu.be/xM26_z3Y4mk?t=60
+
+
+
+https://youtu.be/dsNEzGpi_DU?t=430
+
+Number of primary schools in China has dropped.
+https://youtu.be/dsNEzGpi_DU?t=490
+
+China lost 100s of millions of people during the pandemic.
+https://youtu.be/dsNEzGpi_DU?t=975
+
+
+
+https://www.youtube.com/shorts/kRLPylvAUxE
+600 Million Units: China Claims Housing Numbers
 
 
 

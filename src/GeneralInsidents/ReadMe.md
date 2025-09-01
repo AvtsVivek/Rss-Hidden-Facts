@@ -433,11 +433,14 @@ https://youtu.be/-s_4O0mAzZQ?t=87
 https://en.wikipedia.org/wiki/Nripendra_Misra
 https://www.youtube.com/watch?v=AmuvVZ31bl4
 
+Reverse marketing.
+Sangh has done reverse marketing of itself.
+https://youtu.be/Xl40RyNZz4U?t=1060
 
 
 Democracy is finished in Europe | Yanis Varoufakis
 
-Ok, so to start with, listen carefully to what Yanis Varoufakis, a Greek economist and Finance Minster says about French politics
+Ok, so to start with, listen carefully to what Yanis Varoufakis, a Greek(Greece) economist and Finance Minster says about French politics
 
 https://youtu.be/565mNf8_YrU&t=95s
 
@@ -749,11 +752,21 @@ https://x.com/ANI/status/1644968048787615745/photo/4
 Kapil Mishra speech 
 https://twitter.com/GurudathShettyK/status/1690307066169331713
 
-Brahmins are killed every day in UP
+Brahmins(Bramins, Brahmanas, Pujaries, Mahants) are killed every day in UP
 https://twitter.com/mediacrooks/status/1791461388726239734
 
+mandal commission, Comission, 
+https://www.youtube.com/watch?v=p1IBjRm1TiE
+भाजपा सरकार में सबसे ज्यादा हिंदुओं पर अत्याचार! |@Indiaspeakdaily | Sandeep deo
+
+Ravan, Rakshas
 https://youtu.be/3VC7PLQxDbA?t=608
+
+jyotiba phule, Ambedkar
+https://youtu.be/3VC7PLQxDbA?t=725
+
 https://youtu.be/3VC7PLQxDbA?t=1255
+
 https://youtu.be/3VC7PLQxDbA?t=4070
 
 

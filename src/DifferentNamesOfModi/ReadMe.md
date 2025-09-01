@@ -52,5 +52,27 @@ https://www.youtube.com/watch?v=tHctodY5rck
 
 Sindurilal Ji
 
+Rupaya, Rupee.
+https://youtu.be/WmXt5P8RgTs?t=1547
+
+CBI Control
+https://youtu.be/WmXt5P8RgTs?t=1605
 
 
+modi petrol gas diesel price old video youtube in hindi
+https://www.youtube.com/watch?v=WmXt5P8RgTs&t=1445s
+
+
+Pramatma Ne Banaya, It Professionals Chota Sooch Hi Nahi Sakte
+https://youtu.be/WmXt5P8RgTs?t=1790 
+
+
+
+RSS, Rasool Senta Sangh
+
+BJP, BHEM JAMAT PARTY
+BHEM JAMAT Party, BHIM Jihadi Party
+BhajMulle, 
+Pasmanda Sulta Surrender Sultan
+https://www.youtube.com/shorts/V6R5VXjOkcs
+Mandal Comission 

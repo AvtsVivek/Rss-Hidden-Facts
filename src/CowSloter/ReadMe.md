@@ -203,3 +203,62 @@ Ref 24. https://www.boomlive.in/law/supreme-court-electoral-bonds-lok-sabha-elec
 3. Test 3
 
 https://x.com/ErDurgeshPande7/status/1856372003097190772
+
+
+
+
+
+
+
+
+Cow beef is being exported as cara buffalo meet.
+https://youtu.be/Pz8AxNGxL7Y?t=90
+
+
+Beef samosa
+https://youtu.be/Pz8AxNGxL7Y?t=203
+
+
+Cow beef home delivery
+https://youtu.be/Pz8AxNGxL7Y?t=279
+
+
+Modi Govt Gave more subsidi 
+https://youtu.be/Pz8AxNGxL7Y?t=347
+
+
+Subsidised subsidized subsidy for slaughter houses
+33% more money, thirty three percent more money
+https://youtu.be/Pz8AxNGxL7Y?t=357
+
+Kangana Ranaut beef 
+https://youtu.be/Pz8AxNGxL7Y?t=446 
+
+For social harmony you can eat beef, no problem
+https://youtu.be/Pz8AxNGxL7Y?t=501
+
+monu manesar, neha patel.
+https://youtu.be/Pz8AxNGxL7Y?t=540
+
+
+Eat more beef than chicken mutton and fish
+https://youtu.be/Pz8AxNGxL7Y?t=600
+
+Cow sloter full playlist
+https://www.youtube.com/watch?v=RINynxXJ55U&list=PL8HFkULNTPamZLdlb3MknKIskTHb_cbGA
+
+
+
+No Move to make cow India's national animal, centre informs Parliament
+https://economictimes.indiatimes.com/news/india/no-move-to-make-cow-indias-national-animal-centre-informs-parliament/articleshow/123256191.cms?from=mdr
+
+https://timesofindia.indiatimes.com/india/national-animal-status-for-cow-centre-gives-details-in-parliament-heres-what-it-said/articleshow/123272493.cms
+
+https://www.youtube.com/watch?v=ckVZveC8D98
+
+Hindi
+Parliament: गाय को राष्ट्रीय पशु घोषित करने की कोई योजना नहीं, केंद्रीय पशुपालन मंत्री ने संसद को दी जानकारी
+https://www.jagran.com/news/national-there-is-no-plan-to-declare-cow-as-national-animal-24011415.html
+
+
+

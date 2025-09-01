@@ -141,3 +141,29 @@ https://hinduexistence.org/2021/09/26/rss-closeness-with-arrested-maulana-kaleem
 Ex-RSS CHIEF MR. SUDARSHAN had ACCEPTED ISLAM
 https://www.youtube.com/watch?v=Q6MXvONgjM0
 
+
+If this government falls and then another government comes, it will also be a corrupt government.
+But if that government publishes a white paper on the corruption of this government, then this government will be exposed as the most corrupt government in the history of India.
+
+This govt has legalized corruption through electoral bonds and through PM Care Funds.
+https://youtu.be/7CW5d_BoI5A?t=2351
+
+https://youtu.be/7CW5d_BoI5A?t=4470
+
+
+Kenya's President said India's PM Modi is requesting projects for Adani Group in Kenya.
+https://www.youtube.com/watch?v=7CW5d_BoI5A&t=4470
+
+
+Ahmadabad Air India Plane accident
+Government is lying about the cause of the accident.
+https://youtu.be/7CW5d_BoI5A?t=3030
+
+
+BhajMulle, BharMulla Mull ka Aek Paigambar, 
+https://youtu.be/7CW5d_BoI5A?t=4550
+
+
+Is BJP wants to create a Hindu Rashtra?
+https://youtu.be/Xl40RyNZz4U?t=1182
+
