@@ -23,3 +23,18 @@ https://www.youtube.com/shorts/7myaDiNbQe4
 Its the same thing with Modi.
 
 What did Modi accomplish?
+
+
+
+Victor Davis Hanson about barack obama on how obama divide american society
+
+Victor Davis Hanson: How Obama Divided America
+https://www.youtube.com/watch?v=1ypme1IdITM
+
+Victor Davis Hanson - Obama's Legacy of Identity Politics
+https://www.youtube.com/watch?v=jGiyPPSEMPg
+
+
+
+
+

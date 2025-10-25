@@ -950,6 +950,18 @@ Hindu code bill, Gaw(go) Raksha
 Morarji Desai, CIA salaray 20K dollar per year
 https://youtu.be/KgWNN3GpoCU?t=3319
 
+20 thousand dollar per year.
+Morarji Desai, CIA agent. JP moment
+https://youtu.be/yGhWYjguDL0?t=1540
+
+Richard Nixon, Henry Kissinger
+https://youtu.be/yGhWYjguDL0?t=1835
+
+Morarji Desai, 1979 implimented Mondal Commission. Mandal Commission.
+
+
+
+
 https://indiaspeakdaily.in/my-answer-to-those-who-keep-hindus-enslaved-through-what-is-the-alternative/
 
 What BJP has done for their M community

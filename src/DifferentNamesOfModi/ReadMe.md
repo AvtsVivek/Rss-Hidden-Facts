@@ -76,3 +76,21 @@ BhajMulle,
 Pasmanda Sulta Surrender Sultan
 https://www.youtube.com/shorts/V6R5VXjOkcs
 Mandal Comission 
+
+
+गांधी + अंबेडकर = मोदी - फिर हिंदू मिटे नहीं तो क्यों?
+Gandhi + Ambedkar = Modi
+https://www.youtube.com/watch?v=evlaq5R_500
+Khalipha Ee Hind Modi
+
+https://youtu.be/LHTlsilf7kg?t=10
+Trikund Dhari Khan Sahab
+
+Paridhan Mantri
+https://youtu.be/LHTlsilf7kg?t=404
+
+
+Jhumla Jihadi Modi
+https://youtu.be/LHTlsilf7kg?t=1326
+
+

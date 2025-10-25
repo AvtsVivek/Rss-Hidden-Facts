@@ -13,3 +13,8 @@ https://youtu.be/jYbJDj6h370?t=145
 
 
 https://sarvaskt.wordpress.com/2020/08/07/%E0%A4%B8%E0%A4%BE%E0%A4%B9%E0%A4%BF%E0%A4%A4%E0%A5%8D%E0%A4%AF-%E0%A4%B8%E0%A4%82%E0%A4%97%E0%A5%80%E0%A4%A4-%E0%A4%95%E0%A4%B2%E0%A4%BE-%E0%A4%B5%E0%A4%BF%E0%A4%B9%E0%A5%80%E0%A4%A8%E0%A4%83/
+
+
+paragon of lies, misrepresentation and flase hood 
+https://www.youtube.com/shorts/BD-QYqWG7AE
+
