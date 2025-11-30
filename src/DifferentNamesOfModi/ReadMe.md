@@ -45,6 +45,19 @@ ceasefireandra
 
 Surrender Sultan.
 
+Andhi janta ka superstar, bus vohi ek Chowkidar!!
+
+Andh Bhakton ka superstar, bus vohi ek Chowkidar!!
+
+Moodha Bhakton ka superstar, bus vohi ek Chowkidar!!
+
+
+Turbo charged jugalbandi is an entirely new analogy to describe dual powered corruption. Great
+
+https://www.youtube.com/shorts/2eHGMKNkWp4
+
+Na Khaoonga Na Khane Doonga
+
 चीन पर चुप्पी स्वदेशी पर ज्ञान, वाह सरेंडर सुल्तान!|@Indiaspeakdaily Sandeep deo
 
 https://www.youtube.com/watch?v=tHctodY5rck
@@ -92,5 +105,8 @@ https://youtu.be/LHTlsilf7kg?t=404
 
 Jhumla Jihadi Modi
 https://youtu.be/LHTlsilf7kg?t=1326
+
+
+Dramebaaz modi
 
 

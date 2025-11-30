@@ -93,6 +93,9 @@ China's 1.4 Billion Population is a Complete Lie (It's Much Lower) | Lei
 https://www.youtube.com/watch?v=FW8zalzvH-I
 
 
+What is China's Real Population?
+https://youtu.be/YTS38Ihqmtk?t=650
+
 Ghost cities, merged villages, collapsing businesses: Where did life go?
 https://youtu.be/xM26_z3Y4mk?t=60
 

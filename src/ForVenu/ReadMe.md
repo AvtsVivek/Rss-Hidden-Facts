@@ -166,3 +166,10 @@ Born In Debt: There Is No Way To Get Away From Debt In America.
 https://www.youtube.com/watch?v=xFdEPVld7y8
 
 
+
+Black Rock, institutioinal investers, inflation, Rents going up, revolving doors.
+https://www.youtube.com/watch?v=-VI6o-f2ILY
+
+
+BlackRock: The Most Evil Business In The World
+https://www.youtube.com/watch?v=GAIcet1mQwg
