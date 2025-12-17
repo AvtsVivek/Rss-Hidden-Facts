@@ -147,3 +147,33 @@ Suicide capital of the world, the plastic surgery capital of the world.
 Korea  
 https://youtu.be/UxdtJD9J9P8?t=145
 
+
+
+
+Gaint sinkhole swallows busy street in Turkey due to heavy extraction of groundwater
+https://www.youtube.com/shorts/rH6nNHT6EyU
+
+
+How China Poisoned and Drained Its Own Country in Just 40 Years
+https://www.youtube.com/watch?v=XxQ4K4kX9-g
+
+China is sinking, due to over extraction of water.
+https://youtu.be/XxQ4K4kX9-g?t=427
+
+Sink holes
+https://youtu.be/XxQ4K4kX9-g?t=590
+
+
+Ground water is poisoned
+https://youtu.be/XxQ4K4kX9-g?t=676
+
+
+how dumping poison into water is incentivized in China.
+https://youtu.be/XxQ4K4kX9-g?t=899
+
+
+Polutents are injected deep into the ground by drilling deep into earth.
+https://youtu.be/XxQ4K4kX9-g?t=960
+
+
+
