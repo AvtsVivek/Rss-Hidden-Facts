@@ -81,6 +81,11 @@ https://youtu.be/hGUegcyzDLM?t=6380
  Brahmins are killed every day in UP.
 https://twitter.com/mediacrooks/status/1791461388726239734
 
+One more refirence. 
+An elderly Brahmin man consumed poison on camera in Agra after facing continuous harassment under the SC/ST Act.
+https://x.com/madhukishwar/status/2040297114346078651 Madhu poornima Kishwar, Madhu Purnima Kishwar, Madhu Kishwar
+https://x.com/Shubham_fd/status/2040094030609174951
+
 
 Ghar Wapsi(GharWapsi) vs actually conversion.
 https://youtu.be/hGUegcyzDLM?t=7010 

@@ -167,3 +167,50 @@ https://youtu.be/7CW5d_BoI5A?t=4550
 Is BJP wants to create a Hindu Rashtra?
 https://youtu.be/Xl40RyNZz4U?t=1182
 
+
+
+Womenizing Modi chased Mansi Sony, 
+https://youtu.be/RBgi7hFFL0M?t=303
+
+
+
+
+What does this data say. Ajay Prakash
+THE STOLEN REPUBLIC: Modi Magic Declines, BJP keeps winning
+https://www.youtube.com/watch?v=xD8733G1UQU
+
+How Modi won 2024 Varanasi
+Modi was trailing meaning
+https://youtu.be/xD8733G1UQU?t=134
+
+Ghost Votes, 161 Seats.
+https://youtu.be/xD8733G1UQU?t=356
+
+Maharastra late night Voter turnout
+Prakala Prabhakar, husband of Nirmala SitaRaman
+https://youtu.be/xD8733G1UQU?t=396
+
+
+Fake Followings of Modi on Instagram and Twitter
+https://youtu.be/xD8733G1UQU?t=638
+
+
+
+
+
+
+
+
+https://youtu.be/Axe8vXAKY7A?t=1685
+Sangh is not a hindu organization. Sangh is a cult. 
+Anti Hindu, Hindu Virodhi, Jews Funded Cult. CIA Funded Cult.
+Muslim Funded Cult, Christian Funded Cult.
+The entire objective of RSS, Sangh is to completely distroy Hindu society from within the Hindu society.
+It appears to be a Hindu organization, working for the Hindu organization.
+Kalnemi and Poundrak
+Garbh Jihad. 
+
+
+
+
+

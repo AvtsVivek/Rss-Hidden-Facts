@@ -550,7 +550,7 @@ How to get supreme court judgements.
 
 https://main.sci.gov.in/judgments
 
-![search supreme court judgements](50_50_Seach_Judgements.jpg)
+![search supreme court judgements](50_50_Search_Judgements.jpg)
 
 
 
@@ -580,6 +580,12 @@ https://www.ambedkarfoundation.nic.in/assets/schemes/Inter%20caste%20marriace%20
 
 It’s all in the (Sangh) parivar: RSS's power couples
 https://mumbaimirror.indiatimes.com/others/sunday-read/its-all-in-the-sangh-parivar/articleshow/66573315.cms
+
+
+RSS का 'डबल गेम' | Shankaracharya का महा-खुलासा: 10 lakh Hindu daughters married to Muslims?
+https://youtu.be/VTrk1n-g2Ww?t=420
+
+
 
 क्या मोदी का 'एक हैं तो सेफ हैं' नारा केवल भारत की आम जनता और गरीब जनता तक ही सीमित है❓
 
@@ -997,4 +1003,34 @@ Acharya Pramod Krishnam
 https://x.com/AcharyaPramodk/status/1919954866903937424
 
 https://x.com/zoo_bear/status/1920004516587450838
+
+
+	
+SC Threatens Govt On Judicial Corruption In text Book | Brahmin Hate Goes On | Ajeet Bharti LIVE
+https://www.youtube.com/watch?v=4ubo0py5WPk
+
+
+
+Madhu Purnima Kishwar tweets about modi Scandals
+https://x.com/madhukishwar/status/2037252425795723771
+https://x.com/madhukishwar/status/2036844407929135426
+https://x.com/madhukishwar/status/2037259797419221190
+https://scroll.in/article/694110/somebody-has-done-black-magic-on-modi-madhu-kishwar
+
+
+Subramanian Swamy makes huge allegations again
+Tarun Gautam
+https://x.com/TARUNspeakss/status/2036450875791778018
+
+
+Bheemtas doing Hast Maithun on Shiv Ling
+https://youtu.be/Zdd4_wGrZqY?t=271
+
+
+Madhu Purnima Kishwar feels un safe, 
+Dividing the hindu society.
+https://www.youtube.com/watch?v=4XcvHPKzcD8
+Left and Right are the same sides of the exactly same coin.
+https://youtu.be/4XcvHPKzcD8?t=166
+
 

@@ -262,3 +262,19 @@ https://www.jagran.com/news/national-there-is-no-plan-to-declare-cow-as-national
 
 
 
+https://www.coastaldigest.com/rss-leader-manmohan-vaidya-who-endorsed-beef-eating-justifies-his-stance
+Even beef-eaters can be RSS members, says senior leader Manmohan Vaidya-The leader said this in Arunachal Pradesh.
+RSS leader Manmohan Vaidya who endorsed beef eating justifies his stance
+https://x.com/eclector1419857/status/1297789583770267649
+3000 Sangh members eat Beef.
+
+
+Beef eating RSS Manmohan Vaidya
+https://www.coastaldigest.com/rss-leader-manmohan-vaidya-who-endorsed-beef-eating-justifies-his-stance
+
+RSS Leader Manmohan Vaidya endorsed beef eating justifies his stance
+https://www.reddit.com/r/india/comments/3wxebe/do_you_know_that_nearly_3000_rss_members_eat_beef/
+https://youtu.be/axeZCjD2_9A?t=600
+
+
+

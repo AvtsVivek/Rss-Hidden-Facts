@@ -255,3 +255,58 @@ https://youtu.be/YldadcAEThg?t=51
 “By promoting promiscuity, eroticism, prostitution, abortion, and homosexuality!” they resounded.
 Gress, 73–74
 
+
+Women are dirty: understanding their dark desires
+
+Orion Taraban
+
+https://youtu.be/rWPVtVrljig?t=204
+The paramount conquest of a women, is domesticating the bad dangerous unbreakable man into her pet. This is the challenge that women pine for.
+
+https://youtu.be/rWPVtVrljig?t=325
+They want to tame the bad boy. But when they succeed in doing so, they no longer are interested in him. 
+
+Men are gatekeepers of commitment, and women are gatekeepers of sex. And sex prceeds commitment in the west.
+https://youtu.be/IXxCfswdH68?t=80
+
+
+[Why Women Cage the Men They Desire](https://www.youtube.com/watch?v=IsYdHHEq2lc)
+
+Happy wife and Happy life.
+https://youtu.be/IsYdHHEq2lc?t=343
+
+Limited Edition, Kiran Roy, 
+https://youtu.be/qRQNgEqB0PA?t=874
+
+
+
+General Caste On Target: UGC Rules To Make It Hell On Campus | Ajeet Bharti Explains
+https://www.youtube.com/watch?v=iwnvKm8NZFw
+
+Modi's UGC To Hunt Defenceless General Caste On Campus | Trump Halts Iran Attack | Ajeet Bharti LIVE
+https://www.youtube.com/watch?v=I3nLIrrlTXc
+
+General Category Is New Jews | What's The Problem With BJP? | BIG Mistake!
+https://www.youtube.com/watch?v=Xu75FWTE4yI
+
+
+समता के नाम पर सामान्य वर्ग विरोधी कानून लागू हो जाएगा?
+https://www.youtube.com/watch?v=4CCFhJGvFkw
+
+
+Modi Govt Punishing the General Category Hindus?
+https://www.youtube.com/watch?v=XM36juKmF7k
+
+भारत में गुजराती गैंग का बड़ा खेल ! Devendra Balhara Unfiltred With Rahul Attri #EP49 Ambani Adani
+https://www.youtube.com/watch?v=ahicJ_QV0m4
+
+
+
+
+
+
+			
+			
+
+
+

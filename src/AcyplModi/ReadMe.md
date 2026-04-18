@@ -39,4 +39,14 @@ https://www.facebook.com/gkishanreddy/posts/373715909443108
 
 
 
+https://x.com/rajveerisback/status/2041716697640661284
+
+https://x.com/garvit_sethii/status/2041568860206473462
+
+https://x.com/neorevolt/status/1892089283328213064
+
+https://x.com/wyte_johnny/status/1892185244364632549
+
+
+
 

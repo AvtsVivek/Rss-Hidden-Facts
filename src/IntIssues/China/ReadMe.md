@@ -92,6 +92,15 @@ China’s fake population explains its faltering economy, October 8 live
 China's 1.4 Billion Population is a Complete Lie (It's Much Lower) | Lei
 https://www.youtube.com/watch?v=FW8zalzvH-I
 
+Under 500 million.
+https://youtu.be/FW8zalzvH-I?t=61
+
+Its somewhere between 300 to 400 million
+https://www.youtube.com/watch?v=UM57HhM8yV8&t=30s
+
+laowhy86: China Just Lost 1 Billion People
+https://youtu.be/zkjy4vX4ixA?t=40
+
 
 What is China's Real Population?
 https://youtu.be/YTS38Ihqmtk?t=650
@@ -109,6 +118,9 @@ https://youtu.be/dsNEzGpi_DU?t=490
 China lost 100s of millions of people during the pandemic.
 https://youtu.be/dsNEzGpi_DU?t=975
 
+
+China's Real COVID Death Could Be 400 Million
+https://www.youtube.com/watch?v=EKTaP3k4pqc
 
 
 https://www.youtube.com/shorts/kRLPylvAUxE

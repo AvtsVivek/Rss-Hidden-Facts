@@ -173,3 +173,21 @@ https://www.youtube.com/watch?v=-VI6o-f2ILY
 
 BlackRock: The Most Evil Business In The World
 https://www.youtube.com/watch?v=GAIcet1mQwg
+For Venu
+
+https://www.youtube.com/shorts/4DABI3GKZGk
+
+
+https://www.youtube.com/shorts/e6DwuRgKXVo
+
+
+https://www.youtube.com/shorts/s0ePGvOt1TI
+
+
+Love isn’t the problem.
+Losing control is.
+
+A strong man loves deeply…
+but never at the expense of his standards or purpose.
+When Men Fall Madly in Love…
+https://www.youtube.com/shorts/K5hE3DkqZBk

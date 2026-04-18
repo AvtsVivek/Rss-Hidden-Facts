@@ -31,3 +31,10 @@ https://timesofindia.indiatimes.com/india/wont-allow-dilution-of-sc/st-act-pm-mo
 
 https://prsindia.org/billtrack/the-scheduled-castes-and-the-scheduled-tribes-prevention-of-atrocities-amendment-bill-2018
 
+Madhu Purnima Kishwar about SC/ST act.
+https://x.com/madhukishwar/status/2040325841020952654
+
+
+
+
+

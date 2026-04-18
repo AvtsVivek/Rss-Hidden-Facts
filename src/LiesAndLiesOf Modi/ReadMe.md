@@ -3,6 +3,11 @@ The lies and lies of Modi
 35 or 40 years Bhiksha Maang kar ke khaya
 https://youtu.be/WWe2WRWxtb0?t=26
 https://youtu.be/WWe2WRWxtb0?t=11
+https://www.youtube.com/shorts/jTR2J00XrA8
+When I was not PM, not CM, not even any leader, when I was not holding any position, before any of that, I have toured in around 29 states of America. 
+https://youtu.be/jTR2J00XrA8?t=10
+
+
 
 Jhut Bolo bar bar Jhut bolo
 https://youtu.be/WWe2WRWxtb0?t=31
@@ -11,7 +16,27 @@ Jhumla Hai Amit Shah
 
 https://youtu.be/WWe2WRWxtb0?t=62 
 
+Women Safety in India.
+NCRB report, National Crime Records Bureau
+2023 report was supposed to be release in September 2024 is realease one full year late.
+2024 report is not yet release as on Jan 2026.
+And the 2024 report is released with the directors note and release date.
+This is typical of this Modis regime. They keep on lying, misleading and hyding the data.
 
+Only on third of complaints become FIRs
+https://youtu.be/2z83ZRq12PI?t=235
+This is because more FIRs means bad optics for the ruling party. 
+
+I dont think there is any other head of state in the last 100 hundred years that lied so much in the entire world.
+Bloody bluffer
+
+India speak daily
+हर साल गायब हो रही है 5 लाख बेटियां! |‪@Indiaspeakdaily‬ | Ashwini Upadhyay
+https://www.youtube.com/watch?v=sUSL3j4ruh0
+
+India speak daily
+RSS का 'डबल गेम' | Shankaracharya का महा-खुलासा: 10 lakh Hindu daughters married to Muslims?
+https://www.youtube.com/watch?v=VTrk1n-g2Ww
 
 ver 31,000 Women Went Missing In Madhya Pradesh In 3 Years: Data
 https://x.com/Planet_Deb/status/1808416042936606981

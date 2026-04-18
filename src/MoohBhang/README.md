@@ -84,8 +84,9 @@ If you want to take a look at them, go here https://www.youtube.com/@manushiIndi
 
 
 15. The global Mafia and the complex game starts. 
-Do you know the meaning of Noor Kushti? Pretending to fight. How many of you understand this? 
+Do you know the meaning of Noor Kushti? NooraKushti, NuraKushti, kusti Pretending to fight. How many of you understand this? 
 https://youtu.be/y1bNWtKqbPU?t=1325s
+
 
 16. I came our from Gandhism. Modi is Gandhi II. This Gandhi II is way ahead of Gandhi I in Truptikaran.
 https://youtu.be/y1bNWtKqbPU?t=1381

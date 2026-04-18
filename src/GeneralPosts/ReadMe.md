@@ -60,3 +60,36 @@ https://www.youtube.com/watch?v=ZOdtFpxpb9U
 Here is another reference, given by Dr Subramanian Swamy
 https://youtu.be/UF6OEhyuIg8?t=1835
 
+
+
+Adivani is communal, and Atal is secular.
+Then when time for Advani to fight elections in 2009, Advani becomes secular, and Modi is communal.
+And then wnen time for Modi to become PM, Modi becomes secular, or even Hindu Hridaya Samrat.
+And now Modi has becomes is ommunal, and Yogi is now Hindu Hridaya Samrat.
+https://youtu.be/9nKAMZO6FFM?t=400
+
+
+Yogi Adityanath Policy 
+https://youtu.be/9nKAMZO6FFM?t=445
+
+
+Congress and Sangh is created by the British
+https://youtu.be/9nKAMZO6FFM?t=975
+
+
+Sangh never participated in Independence moment, or quit India moment.
+https://youtu.be/9nKAMZO6FFM?t=1027
+
+Shyama Prasad Mukherjee was part of the 
+https://youtu.be/9nKAMZO6FFM?t=1036
+
+Syama-Huq govt
+
+Got the following from google AI by searching for fazlul haque and shyama prasad mukherjee
+A.K. Fazlul Huq (Premier) and Shyama Prasad Mukherjee (Finance Minister) led a unique Hindu-Muslim coalition government in undivided Bengal (1941-42), known as the Syama-Huq ministry. Formed after Huq's rift with the Muslim League (following his 1940 Pakistan Resolution), this government, involving the Hindu Mahasabha and Krishak Praja Party, aimed for communal harmony and secular administration, providing a brief alternative to League politics before Mukherjee resigned, citing British repression during the Quit India Movement. 
+
+
+Mohan Bhagavat is acused of taking IS1 Chanda and CIA relationships.
+https://youtu.be/9nKAMZO6FFM?t=1140
+
+

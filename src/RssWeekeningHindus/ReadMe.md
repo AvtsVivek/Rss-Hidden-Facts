@@ -27,3 +27,23 @@ https://youtu.be/DUato72vD5E?t=546
 
 The Great Man Sita Ram GoelJi said - The Sangh Parivar is taking Hinduism and Hindus into the path of Destruction. If Sangh Parivar does not perish, Hindus or Hindu society will perish. Each and every word is coming true now. 
 https://youtu.be/DUato72vD5E?t=580
+
+For more SitaRam Goel's statements, look at the following.
+https://x.com/RituRathaur/status/1694981948442361954
+
+
+https://x.com/RaviKaushik99/status/1694959727137165541
+
+
+https://x.com/RituRathaur/status/1694951156475470006
+
+
+M. Nageswara Rao IPS (Retired)
+https://x.com/MNageswarRaoIPS/status/1673633764256407552
+
+Sita Ram Goel's criticism of RSS : PART 4 || GOEL'S PATRIOTISM QUESTIONED || How I Became A Hindu ||
+College Street Kolkata
+https://www.youtube.com/watch?v=aOyjuK9VhLA
+
+
+
