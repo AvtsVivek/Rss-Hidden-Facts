@@ -35,6 +35,26 @@ Madhu Purnima Kishwar about SC/ST act.
 https://x.com/madhukishwar/status/2040325841020952654
 
 
+If there is Modi, then the destruction of Hindus is certain!
+https://x.com/madhukishwar/status/2044346044427968922
+
+
+https://x.com/madhukishwar/status/2040297114346078651
+https://x.com/Shubham_fd/status/2040094030609174951
+An elderly Brahmin man consumed poison on camera in Agra after facing continuous harassment under the SC/ST Act.
+
+
+https://x.com/madhukishwar/status/2044066070525554806
+
+
+If Modi is there, it's not possible at all,  
+The destruction of Hindus is certain!
+https://x.com/madhukishwar/status/2044345038096990468
+https://x.com/_vatsalasingh/status/2043946839117050223
+
+
+
+
 
 
 

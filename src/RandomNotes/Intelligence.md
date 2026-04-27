@@ -30,3 +30,7 @@ It's a neuroelectric remodeling.
 Awareness edits the file system. And most people never develop this because metacognition is extremely uncomfortable. It requires pausing instead of reacting, questioning instead of defending, and watching yourself fail honestly. And your ego hates this.
 
 
+What is wisdom
+https://www.youtube.com/shorts/nvHu96YXIRw
+The ability to hold two paradoxes together.
+
