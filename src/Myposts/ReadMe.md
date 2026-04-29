@@ -206,14 +206,20 @@ The answer is getting clear and its simple, when there are scores and scores of 
 
 I dont think, I will ever encounter this level of stupidity for the rest of my life. So where do you get this?
 
-But for one thing, I will definitely apprecite Modi. If it is not or him, I would never have realized ISKCON is now a cult, spineless dalaaal leaders followed by brain dead sheep.
+For one thing, I will definitely apprecite Modi. If it is not or him, I would never have realized ISKCON is now a cult, spineless dalaaal leaders followed by brain dead sheep. 
 
 Show me one leader who has spine to call this things out. For example, in the last 12 years alone, India has raisen from number 12 in beef exports to now at number 3.
 There is not a single leader in the enterity of ISKCON who can say this out. Not just one. 
 
-SO yaa.. Modi exposed this, full credits to him. 
+SO yaa.. Modi exposed this, full credits to him. One of the greatest realizations of my life.
 
 I tried explaining this to you so many times, and yet again and again and again, You, like a dogs tail, keep on getting such garbage.
+
+Just curious, how does this work? I think the following, do correct me.
+
+So you stroll around, you find something, you feel good, get butterflies, then simply grab it into your pocked. No thinking, brain dead you see.. Thinking is banned anyway.
+
+Then dump it where ever you visit. Finally feel good about yourself. If that how it works? 
 
 Haaa..
 
@@ -221,25 +227,26 @@ No point in me taking pains to writing these stuff, am completey sure, given eno
 
 SSo...I am thinking...
 
-Why not talk about my, yours, everyones favorite ....
+Why not talk about mine, yours, everyones favorite ....
 
 Vaishnav Foooooood. No yaa the jaaaaiiin foooood. The presidential banquet, not just any bankquet.
 
-The Karjat Vadaa Paaaavvvvv.....
+So the famous the karjat Vadaa Paaaavvvvv..... Was it there...?
 What about sour sharp and tingy Kaccha Mango Rice... Wow...
 
-Also yaa..Just curious Chines Fried Rice, Manchurian Nooooodles with Shejwan.. were they also served? 
+Also yaa..Just curious Chines Fried Rice, Manchurian Nooooooooooooodles with Shejwan.. were they also served? 
 
 Because you see, our great PM, before when he was CM, used to frequent China. 
-And I am sure fine dining with Chines dishes among many differet things, he used to be offered. These days many differet rumors are floating around, am sure all of you came across some of them.
+And I am sure fine dining with Chines dishes among many differet things, he used to be offered. These days many differet rumors  floating around about what all being offered during foreign trips, am sure all of you came across some of them.
 
 And Roooshhooogooollo? Cheeda Doooooohi from Paanihoti, ya, I am sure definitely will be there...
-Common guys.. Add somethings from your side as well. 
+
+So Common guys.. Add somethings from your side as well. 
 What are your favorites? Do share...
 
 Aaahhh..
 
-Sorry guys, I keep comming back to this... not able to help..
+Sorry guys, I keep comming back to this... ceeent help..
 
 
 

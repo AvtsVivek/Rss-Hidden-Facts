@@ -191,3 +191,28 @@ A strong man loves deeply…
 but never at the expense of his standards or purpose.
 When Men Fall Madly in Love…
 https://www.youtube.com/shorts/K5hE3DkqZBk
+
+
+
+https://www.youtube.com/watch?v=NAiImaqVCHE
+
+Timecodes
+00:00 The Letter Every Married Man Dreads
+00:33 How They Met In College
+01:22 The Girl Who Actually Burned For Him
+02:23 The Marriage That Was Doomed From Day One
+04:21 Her 23-Year Confession
+06:01 The Marriage Contract Men Never See Coming
+06:58 What Genuine Burning Desire Looks Like
+08:01 The Three Types Of Women
+11:17 Why The Adored Man Always Wins
+12:20 Why Chore Play Never Works
+13:21 What Happens After She Walks Out
+15:07 How To Stop Being Her Second Choice
+
+
+Oneitis is an unhealthy, obsessive infatuation with a single, often unobtainable person, treating them as the only romantic option while disregarding others. Common in dating, it involves placing someone on a "pedestal," leading to desperate behavior or "nice guy" syndrome. It stems from insecurity or a need for validation, not genuine love
+
+https://youtu.be/NAiImaqVCHE?t=830
+
+
