@@ -29,3 +29,12 @@ https://youtu.be/F7xBzy2GgZs?t=195
 
 https://www.youtube.com/watch?v=H2PUZIE1vxQ
 87 साल की इस मैया को 71 साल की उम्र में हुआ था Blood Cancer | Swami Ramdev | Sanskar TV
+
+
+
+
+प्लेटलेट्स (Platelets) बढ़ाने के लिए आजमाएं यह उपाय || Swami Ramdev
+https://www.youtube.com/watch?v=Vv8Lg_8D4ok, Annar
+Papaya Leaf Juice
+
+

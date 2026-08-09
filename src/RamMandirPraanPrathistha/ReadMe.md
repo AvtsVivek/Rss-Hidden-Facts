@@ -47,43 +47,29 @@ This Sangh has nothing to do with Sanatan Dharma.
 The objective of the Sangh RSS is to completely dismantil Hindu Civilization from this country by slowly and gradually, stealthely Islamize, Christialize, Abrhamize this country. 
 
 
-Ram Mandir loot
-Madhu Kishwar trains guns on Modi-Yogi for Ram Mandir theft | LIVE
-https://x.com/madhukishwar/status/2066568872980095380
-https://x.com/madhukishwar/status/2067815794231464007
-https://www.youtube.com/watch?v=mgLoZNljRpk
+Ram Mandir Loot
+SIT FIR 
+Aam Aadmi Party Sanjay Singh interview
+मोदी-योगी मुंह नहीं दिखा पाएंगे, संजय सिंह एक और बड़ा खुलासा करने वाले हैं | Sanjay Singh | Ayodhya
+https://www.youtube.com/watch?v=a9Pk4KMhKw4
 
 
-
-Ayodhya Daan Ghotala
-
-ram Mandir Temple is a Sangh (RSS) office, from where the sanghis are looting.
-Eveeryone involved in this loot is a sanghee or from VHP
-https://youtu.be/K8DmYgeer5g?t=100
-
-Ram Mandir loot is not just theft, its a Maha Dakaiti. And there is no FIR
-https://youtu.be/K8DmYgeer5g?t=144
-
-Yogi Adiyanath Visit to Ayodhya, and talking about SIT(no FIR).
-https://youtu.be/K8DmYgeer5g?t=280
-https://x.com/myogiadityanath/status/2067869675158131071
+Champat Rai's resignation is Modi's first admission of failure in 12 years | LIVE
+https://www.youtube.com/watch?v=nZOxMyaGp9A
 
 
-Land Ghotala, Champat Ray, champat rai
-https://youtu.be/K8DmYgeer5g?t=520
+8 Booked, Champat Rai & Anil Mishra Resign in Ram Mandir Donation Scam: Arrest Soon? | LIVE
+https://www.youtube.com/watch?v=YXdh55gojX4
 
-40% Commission
-https://youtu.be/K8DmYgeer5g?t=573
 
-60 kilos of Silver is looted
-https://youtu.be/K8DmYgeer5g?t=765
-				
-				
-https://youtu.be/K8DmYgeer5g?t=814
+Golden Ram Charita Manas was gifted. But stolen
+https://youtu.be/zDeu4p5boGw?t=70
 
-Ram Naam Japna, Ram Ka Chanda Apna.
 
-SIT report will not even come out.
+The debt of the country has raised from 15000 crores to 200 lakh crores.
+https://youtu.be/zDeu4p5boGw?t=350
+
+
 
 
 

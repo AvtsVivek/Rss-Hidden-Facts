@@ -10,6 +10,7 @@ https://www.youtube.com/watch?v=fClR6i-vmsY
 https://www.youtube.com/watch?v=UzCNbcYMKZI
 
 
-
+Itni Bimariyan Thi… 76 Me Sab Theek Kaise Hua? | Yoga Transformation | manmohan yogi ⁨@Jairamyoga
+https://www.youtube.com/watch?v=CYgje50cH_E
 
 

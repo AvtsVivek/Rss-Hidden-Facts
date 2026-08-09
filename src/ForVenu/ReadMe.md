@@ -1,5 +1,8 @@
 
-Venu
+Venu, ForVenu, For Venu
+
+Niceness Attracts Opportunists
+https://www.youtube.com/shorts/H_n6PyFMzs8
 
 Suicide by husbands || law and Justice || MJ Sir
 https://www.youtube.com/watch?v=nKjwp6Uw1Jk
@@ -214,5 +217,28 @@ Timecodes
 Oneitis is an unhealthy, obsessive infatuation with a single, often unobtainable person, treating them as the only romantic option while disregarding others. Common in dating, it involves placing someone on a "pedestal," leading to desperate behavior or "nice guy" syndrome. It stems from insecurity or a need for validation, not genuine love
 
 https://youtu.be/NAiImaqVCHE?t=830
+
+
+
+https://www.youtube.com/watch?v=Pgm87nBYR-g
+Women do not care about your struggels. They wait/hangout at the finish line and pick the winner.
+https://youtu.be/Pgm87nBYR-g?t=88
+Lets go for the Guy who has what I want.
+
+https://youtu.be/Pgm87nBYR-g?t=183
+Men compete and women choose.
+
+Betatization By thousand Concessions
+Betatization By 1,000 Concessions...
+https://www.youtube.com/shorts/8hDWGj4ZQtE
+https://youtu.be/y10pQACnU38?t=334
+
+Other videos of Sandeep Dev
+
+Ram Mandir Loot, SIT, No FIR
+https://www.youtube.com/watch?v=yESPRPUdLKE
+
+Dharm Ko Dhanda 
+https://youtu.be/yESPRPUdLKE?t=147		
 
 

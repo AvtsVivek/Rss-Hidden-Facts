@@ -277,4 +277,8 @@ https://www.reddit.com/r/india/comments/3wxebe/do_you_know_that_nearly_3000_rss_
 https://youtu.be/axeZCjD2_9A?t=600
 
 
+Media outlet have noted the contrast between the Modi govt's promotions of Halal Certification for international trade to boost exports
+![Modi Halal Certification](51_50_ModiHalalCertificationInOman.png)
+
+
 

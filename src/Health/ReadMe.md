@@ -60,5 +60,17 @@ Silencing Noise Understanding managing tinnitus ebook
 https://www.amazon.in/Silencing-Noise-Understanding-managing-tinnitus-ebook/dp/B0DZ7YLD8D#detailBullets_feature_div
 
 
+10 Patanjali products you can try
 
+1. Patanjali Gulab Jal
+2. Patanjali Divya Kesh Tel
+3. Patanjali Dish Wash
+4. Diyva Dhara
+5. Patanjali Divya Tel
+6. Arjun Jhal Kwath
+7. Patanjali Gonyl
+8. Patanjali Eye Grit Drops: https://youtu.be/AKGDDwnVAHg?t=303
+9. Patanjali Divya Kaantilep: https://youtu.be/AKGDDwnVAHg?t=164
+10. Patanjali Shelajeet Rasayan Vati: https://youtu.be/AKGDDwnVAHg?t=90 
 
+https://www.youtube.com/watch?v=AKGDDwnVAHg

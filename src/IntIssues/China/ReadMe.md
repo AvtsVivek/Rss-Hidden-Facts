@@ -188,4 +188,36 @@ Polutents are injected deep into the ground by drilling deep into earth.
 https://youtu.be/XxQ4K4kX9-g?t=960
 
 
+Will the Three Gorges Dam Collapse? What Just Happened Is Alarming
+1975 Banqiao Dam failure
+https://youtu.be/eD7C9xO1nVk?t=655
+
+
+Lying flat 
+China’s Youth Have Started a Silent Revolt
+
+"Lying flat" (tang ping) is a Chinese counter-mainstream social movement where youth reject high-pressure work culture (e.g., 996) and societal expectations of overachievement. It involves choosing a lower-desire, minimalist lifestyle—working less, not buying homes/cars, and avoiding marriage/children—to protest against inequality and intense competition. 
+
+Wikipedia
+ +2
+Usage Examples & Context:
+Minimalist Living: Intentionally earning just enough to survive, rather than climbing the corporate ladder.
+Resisting Overwork: Rejecting the 996 work schedule (9 am-9 pm, 6 days a week).
+Prioritizing Mental Health: Choosing to "lie flat" means taking a passive approach to competition to reduce life pressure.
+Protest Expression: Using the term online to express apathy toward societal demands to achieve. 
+
+Wikipedia
+ +3
+Synonyms and Related Concepts:
+Quiet quitting: Doing the bare minimum at work.
+Bai lan (Let it rot): A more extreme form of giving up.
+Slacker / Drop out: Choosing not to participate in high-stakes competition.
+Anti-consumerism: Choosing to buy less. 
+
+Reddit
+ +2
+The phenomenon, which began around April 2021, reflects a "spiritual destination" for youth dealing with intense competition and serves as a "silent protest" against rising costs and high expectations
+
+Simple living and high thinking.
+
 

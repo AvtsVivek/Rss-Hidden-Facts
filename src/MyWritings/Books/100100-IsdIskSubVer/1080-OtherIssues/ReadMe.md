@@ -84,6 +84,11 @@ https://youtu.be/AbKzTXsUvNQ?t=713
 18,727(18000) government schools closed in India in 5 years, private schools rise
 https://www.indiatoday.in/education-today/news/story/18727-government-schools-closed-in-india-in-5-years-private-schools-rise-2863516-2026-02-05
 
+The following is a video on How schools produce workers.
+https://www.youtube.com/shorts/cdqE7OEAYOE
+
+
+
 How Epstein accurately captures Xi' move
 https://youtu.be/k0QMdd1mV20?t=2077
 Lei's Real Talk

@@ -34,3 +34,18 @@ What is wisdom
 https://www.youtube.com/shorts/nvHu96YXIRw
 The ability to hold two paradoxes together.
 
+
+
+
+
+
+
+
+
+
+@celastrinacalea
+
+Highest Form Of Intelligence: Metacognition Ep 4
+https://www.youtube.com/shorts/CIXVekRGQVM
+
+Wow. 'You cannot change what you are fused with.' That hits deep. If you are fused with fear, you can only perceive fear. The ultimate cheat code for manifestation is dropping the fusion, stepping back as the Observer, and realizing you are the screen, not the movie playing on it. Once you unplug from the chaos, you can finally tune your mind to an abundant frequency. Saving this one!

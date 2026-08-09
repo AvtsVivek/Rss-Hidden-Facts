@@ -1,5 +1,3 @@
-
-
 Courses
 
 
@@ -147,6 +145,22 @@ https://rzp.io/l/mWQk5qisZI
 https://pages.razorpay.com/pl_KREOs10QHTdPA3/view
 Alternative. 
 https://www.amazon.in/Tinkerly-Watertronics-Learning-Application-Embedded/dp/B08TM52NC5
+
+
+
+
+https://astrolearn.co/masterclasses/kp-astrology-with-prof-krish-murali-eswar-tkdf2ne0i
+
+
+
+Patents: a career most lawyers aren't even eligible for.
+The Patents Act requires a science degree — so your pharma degree already qualifies you, and a law degree alone doesn't. Learn how to start in one 9-hour live training.
+https://growthx.lawsikho.com/f/google-patent-agent-pharma-flex-25-july
+
+
+E commerse business
+https://indiamaan.co/course/
+
 
 
 

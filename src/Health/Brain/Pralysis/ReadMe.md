@@ -28,6 +28,9 @@ https://www.youtube.com/shorts/ZP2_9pUb87E
 
 
 अनुप्रिता जी ने पैरालिसिस (Paralysis) ठीक कर लिया || Swami Ramdev
+Physical and Yoga teacher. Right side peralysis.
+Anupreetaa. She could not even see things, vision also got effected. 
+Strong will power, continuous Anulom Vilom 
 https://www.youtube.com/shorts/nfEooVsJSks
 
 
@@ -64,6 +67,41 @@ https://www.youtube.com/watch?v=XTXJsFCxLj0
 https://www.youtube.com/watch?v=wkO4WYTmUCk
 कैसे पूरे दिन अनुलोम-विलोम (Anulom-Vilom) करके खुद को ठीक किया || Swami Ramdev
 Sujata from Telengana on wheel chair. Her husband brings her on wheel chair. Got normal in three months.
+
+
+4 महीनों में फेशियल पैरालिसिस और आवाज को किया ठीक || Swami Ramdev
+https://www.youtube.com/watch?v=1dloaXvSFTk
+
+
+
+
+Paralysis -Yog and Ayurvedic Remedies | Swami Ramdev
+https://www.youtube.com/watch?v=Axl3FKUaF9Q
+Medhavati
+Ashvagandha Capsule, if there is blood pressure
+If there is no blood pressure, then Ashwashila Capsule
+
+Morning and evening two capsules
+
+Triyodashang Guggul https://www.patanjaliayurved.net/product/ayurvedic-medicine/guggul/divya-triyodashang-guggul/194
+https://www.1mg.com/otc/patanjali-divya-triyodashang-guggul-tablet-otc329134
+Badam Rogan
+
+
+
+
+Ayurvedic Treatment for Paralysis | Swami Ramdev
+https://www.youtube.com/watch?v=wSklqBsHDZs
+
+
+Rasraj Ras: https://www.patanjaliayurved.net/product/ayurvedic-medicine/parpati-ras/divya-ras-raj-ras/152
+EkaagVeer Ras: https://www.patanjaliayurved.net/product/ayurvedic-medicine/parpati-ras/ekangveer-ras/42
+Yogendra Ras: https://www.patanjaliayurved.net/product/ayurvedic-medicine/parpati-ras/yogendra-ras/218
+Pravaal Pisti: https://www.patanjaliayurved.net/product/ayurvedic-medicine/pishti/divya-praval-pishti/142
+Moti pisti, DIVYA MUKTA PISHTI 2 G (PACK OF 3) MOTI PISTI
+https://www.patanjaliayurved.net/product/ayurvedic-medicine/pishti/divya-mukta-pishti/121
+https://www.amazon.in/DIVYA-MUKTA-PISHTI-PACK-PISTI/dp/B0CJDXTP3P
+
 
 
 

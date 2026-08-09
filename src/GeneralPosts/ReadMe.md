@@ -93,3 +93,14 @@ Mohan Bhagavat is acused of taking IS1 Chanda and CIA relationships.
 https://youtu.be/9nKAMZO6FFM?t=1140
 
 
+How Feminists are ruining the lives of young girls aged 12-16. 
+If you are being told only one side of the story, then you are being trained, you are not being educated.
+Kiran roy
+How Feminists Are Brainwashing 12-16 Year Old Girls To Hate Men Exposed
+https://youtu.be/76lY7Yl_6hg?t=340
+
+Brainwashing is not loud, its silent, its repeating.
+By the time you realize, you thinking is already hijacked.
+https://youtu.be/76lY7Yl_6hg?t=782
+
+

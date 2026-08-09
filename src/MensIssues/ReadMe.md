@@ -302,11 +302,39 @@ https://www.youtube.com/watch?v=ahicJ_QV0m4
 
 
 
-
-
+Men are success objects to women, and women are beauty objects to men.
+https://youtu.be/doOF-cLfpHo?t=114
 
 			
-			
+https://youtu.be/ZfWIcx6yO9Y?t=365
+https://youtu.be/2Pkoy0u_S9o?t=225
+Contept is the clock that ticks down to the end of every relationship.
 
+https://youtu.be/uPdu1KqzyZE?t=334
+
+
+The ITYs are 
+
+https://youtu.be/JwUVFzHXZF0?t=370
+At the 378-second mark (approximately 6:18), the speaker is discussing the "Three Ities": proximity, familiarity, and exclusivity.
+
+He argues that in long-term relationships, the more of these three things a man gives to a woman, the worse the dynamic often becomes. He notes that while men naturally want to please their partners, providing too much of these can lead to diminishing returns, where the woman may demand more and treat the man worse over time. He emphasizes that this is a key challenge in managing long-term relationships effectively.
+
+			
+https://youtu.be/FGA6zbP4RBw?t=830
+Leadership means control and strenght means aggression
+
+10 Things Every Man Must Know About Female Nature
+https://www.youtube.com/watch?v=KH-nFe7UmBQ
+Why women monkey branch
+Relationship equity explained
+Why many women date multiple men at once
+Why women lose interest faster
+Female cheating psychology
+Long-term vs short-term attraction
+Hypergamy and dating dynamics
+Sexual marketplace value
+Female nature
+Modern dating advice for men
 
 

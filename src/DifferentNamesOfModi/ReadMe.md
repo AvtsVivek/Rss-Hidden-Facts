@@ -177,6 +177,25 @@ So here the regime is proped up by the deep state, and the opposition as well.
 https://youtu.be/iF0CvbQS9cY?t=2177
 
 
+Event Manager who knows how to write scripts.
+https://youtu.be/2cwpEH85iRg?t=113
+
+
+News Maker Modi
+Aatm Rati Mugdh, egomaniac
+https://youtu.be/dTacaHiiQJY?t=1520
+
+
+Dharm Nirpeksh Barat has turned into Sharm Nirpeksh Bharat
+https://youtu.be/zDeu4p5boGw?t=1100
+
+Event Manager, just to divert attention.
+https://youtu.be/zDeu4p5boGw?t=1158
+
+Pradhan Mantri Nahi hai yee.
+Chunav Mantri hai yee.
+https://youtu.be/zDeu4p5boGw?t=1750
+
 
 
 
