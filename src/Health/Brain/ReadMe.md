@@ -23,6 +23,17 @@ https://www.patanjaliayurved.net/product/ayurvedic-medicine/vati/divya-neurogrit
 
 
 
+A PULSE DIAGNOSIS SO ACCURATE, IT SHOCKS PEOPLE | Nadi Expert Dr.Mahesh Krishnamurthy |GopalRajLabs
+https://www.youtube.com/watch?v=aOid2M9iY6c
 
+rake practitioner
+A Reiki practitioner (often spelled or heard as "rake") is a trained professional who uses a Japanese energy-healing technique to reduce stress, ease tension, and promote deep relaxation
+https://youtu.be/aOid2M9iY6c?t=240
+
+https://maheshkrishnamurthy.com/
+
+https://nadichikitsa.com/dr-mahesh-krishnamurthy/
+
+https://www.amazon.in/SECRETS-PULSE-Ayurvedic-Pulse-Diagnosis/dp/B08LC9HZM6
 
 

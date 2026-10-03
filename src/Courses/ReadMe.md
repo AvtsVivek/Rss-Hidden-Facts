@@ -162,6 +162,19 @@ E commerse business
 https://indiamaan.co/course/
 
 
+Learn a Structured Approach to Career & Salary Growth
+https://sawan.sgacademy.info/join-workshop-now/
+
+
+सीखें Natural तरीके जिनसे आप अपनी Life को बेहतर बना सकते हैं और स्वास्थ्य समस्याओं से राहत पा सकते हैं।
+https://wellness.gonatureclassrooms.com/hindi-online-ga/
+https://www.youtube.com/watch?v=t_8fapBBMHI
+
+
+Learn How to Practice Past Life Regression and Quick Hypno-Healing for Deep Client Shifts In Just 3 Days
+https://workshop.gopalmaheshwari.in/
+
+
 
 
 

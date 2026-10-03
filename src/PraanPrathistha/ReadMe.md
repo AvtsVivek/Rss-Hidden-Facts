@@ -85,6 +85,7 @@ Ram Naam Japna, Ram Ka Chanda Apna.
 
 SIT report will not even come out.
 
-
+Ram Mandir Loot, Champat Rai, Nripendra Mishra, Nrupendra Mishra
+https://youtu.be/S7u1shFcrsU?t=1229
 
 

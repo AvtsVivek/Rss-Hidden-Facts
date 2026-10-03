@@ -558,6 +558,7 @@ Eisa koi Saga Nahi
 Jisko Usne Thaga Nahi
 Abto Khair Bacha Nahi
 https://youtu.be/ZItCcLnSICk?t=385
+https://youtu.be/5-h_BvF7IB0?t=782
 
 Thali Bajao, Tali Bajao, Jhadu Lagao, Deep Jalao,
 https://youtu.be/ZItCcLnSICk?t=787
@@ -1042,3 +1043,20 @@ Left and Right are the same sides of the exactly same coin.
 https://youtu.be/4XcvHPKzcD8?t=166
 
 
+
+How Modi attacked Ayurved, and Baba Ramdev. How modi encouraged Bill Gates and Pharma maphia
+How Modi using IMA, Indian Medical Association, around 1500 criminal cases are filed againest Baba Ramdev.
+How Modi forced Baba Ramdev to withdraw Covid kits, how many clinics to be closed.
+Ayurved research was handed over to Bill Gates. 
+
+किसकी कब्र पर मिट्टी डालने आए Ramdev ? Madhu Kishwar ने बता दिया नाम
+https://www.youtube.com/watch?v=LeRcgMVL0fk
+
+
+https://www.youtube.com/watch?v=H4gh8X-OoxQ
+Why Korea Knows It's Raising Suicidal Children. Dr. Jonathan Tam
+
+https://www.youtube.com/watch?v=6utKPtf7fuw Dr. Jonathan Tam
+The author uses the **operating system** metaphor once in the video to explain the mechanism of cultural survival and erosion. 
+He discusses this at **(2:16 - 2:21)**, stating that while individual cultural fragments like gestures or clothing may persist, the "operating system" 
+that allowed those components to function as a cohesive whole is lost when the intergenerational transmission of values and language breaks down.

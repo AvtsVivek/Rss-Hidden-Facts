@@ -207,8 +207,19 @@ https://youtu.be/CnUz-5bdt8c?t=3580
 
 Bengal Election प्रभाव: एक और Modi समर्थक का हुआ Modi से मोहभंग! |‪@Indiaspeakdaily‬ |Kusum lata Kedia
 Modi Saying to do "Hisab Chukta"
+
+Badlav Hona Chahiye, Badla nahi, after BJP win in Bengal.
+https://youtu.be/OniSRnyTGng?t=50
 https://www.youtube.com/watch?v=OniSRnyTGng
 https://www.youtube.com/watch?v=ZlIW9iRywPA
+
+Did Kusum Lata Kedia said Hisab Chukta refering to Modi?
+
+
+
+
+
+
 
 
 

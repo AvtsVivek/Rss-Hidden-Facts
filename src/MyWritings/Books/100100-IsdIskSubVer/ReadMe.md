@@ -125,6 +125,20 @@ https://x.com/King_himanshu08/status/2026146997351469482/
 https://x.com/King_himanshu08/status/2026146997351469482/photo/1
 
 
+BJP govt giving Rifle Firing training to Neo-Buddhists, BJP Govt in Maharastra
+https://youtu.be/2QeOTbKMfT4?t=277
+https://www.youtube.com/watch?v=2QeOTbKMfT4&t=1048s
+
+
+https://www.youtube.com/watch?v=fDDQIk7Im58&t=649s
+महाराष्ट्र में सैन्य प्रशिक्षण में भेदभाव | 🔴LIVE | धर्म मीमांसा, Army training in Maharastra
+
+
+
+Maharashtra Devasthan Inam Abolition Act 2026 : शिवाजी महाराज की सनदें खत्म? |@Indiaspeakdaily
+
+
+
 Legal definition of Neo-Buddhist
 https://youtu.be/2QeOTbKMfT4?t=381
 Neeraj Attri

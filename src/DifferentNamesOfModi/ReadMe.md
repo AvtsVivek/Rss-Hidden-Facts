@@ -197,6 +197,13 @@ Chunav Mantri hai yee.
 https://youtu.be/zDeu4p5boGw?t=1750
 
 
+Jaduie ambulance in Modis election speaches. 
+https://youtu.be/JttCnEo_Aps?t=273
+
+
+PR stunts.
+https://youtu.be/JttCnEo_Aps?t=426
+
 
 
 

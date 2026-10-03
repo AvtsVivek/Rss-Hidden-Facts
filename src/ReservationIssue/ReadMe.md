@@ -121,3 +121,12 @@ https://youtu.be/-adoV6HC64E?t=659
 Rowlatt Act, set of legislative measures enacted in 1919 by the British colonial government to clamp down on nationalist movements in India
 No Apeal, No Vakeel, Na Daleel
 https://youtu.be/-adoV6HC64E?t=725
+
+
+
+Government proposes 40% hike in SC/ST atrocity compensation to up to Rs 12 lakh - The Economic Times
+https://economictimes.indiatimes.com/news/economy/policy/government-proposes-40-hike-in-sc/st-atrocity-compensation-to-rs-12-lakh/articleshow/133164581.cms
+
+
+
+

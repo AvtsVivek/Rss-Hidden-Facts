@@ -1,3 +1,10 @@
+Sc St
+
+You get money SCST act
+https://youtu.be/Acel0eUnRKY?t=780
+
+
+
 Sawarn and OBC are being targetted. 
 High court and supreme court already stated againest the SC/ST(sc/st) act. 
 Supreme Court gave a judgement, that without investigation, there should be no arrests. But the government came up with ordinance. 

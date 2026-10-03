@@ -221,3 +221,9 @@ The phenomenon, which began around April 2021, reflects a "spiritual destination
 Simple living and high thinking.
 
 
+
+
+China BJP and Modi Traning Relation, Sweta, Shweta Purohit
+https://youtu.be/S7u1shFcrsU?t=3045
+
+
